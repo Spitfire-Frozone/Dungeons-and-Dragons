@@ -10,8 +10,10 @@ Now that we think about it, we know our new compansions, and we have always know
 
 *vision fades*
 
-We ride out through the city and Vistra Hardheart greets us, 
-
+We ride out through the city and Vistra Hardheart greets us by the gate, 
+~~~
+Vistra: If you manage to stop the dragon and save our civilisation, it will owe you a great debt.
+~~~
 *vision fades*
 
 Vast armies are facing dragons in open fields. There are far too many dragons for us to possibly win. Thunder rocks our bodies as we see the largest dragon we have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. It is accompanied by three smaller dragons.  
