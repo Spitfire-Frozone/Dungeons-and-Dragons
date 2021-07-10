@@ -150,6 +150,8 @@ Something wrong. Children strange...
 
 We hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves.
 
-We leave the cave and there are mountains surrounding us on all sides. Given the map we found in the cave, Tezzaran petitions the party to go West, in search of a landmark. We find a cluster of trees in the mountain range and we decide to rest up for the day. 
+We leave the cave and there are mountains surrounding us on all sides. Given the map we found in the cave, Tezzaran petitions the party to go West, in search of a landmark. We find a cluster of trees in the mountain range and we decide to rest up for the day.
 
 *DING DING DING*
+
+Baka uses a newfound power to make a metal bucket to contain the Grung that they can wear. 
