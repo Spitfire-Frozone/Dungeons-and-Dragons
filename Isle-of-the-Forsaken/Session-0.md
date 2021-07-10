@@ -118,8 +118,38 @@ We open the door to the South and meet the Boss Vedalken and Goliath that Nighti
 ~~~
 Tezzaran: I was saving this for a spicy encounter
 ~~~
-The Vedalkens face melts and he collapses. Nightingale make a beeline straight for a chest in the corner, sucessfully picks the lock and triggers an acid trap when she opens it up. Inside the chest is a note written in a code, a sap (which Nightingale claims) along with a precious bust. The Captain has a key around its neck (the one for the chest). 
+The Vedalkens face melts and he collapses. Nightingale make a beeline straight for a chest in the corner, sucessfully picks the lock and triggers an acid trap when she opens it up. Inside the chest is a note written in a code featuring lots of numbers, a sap (which Nightingale claims) along with a precious bust. The Captain has a key around its neck (the one for the chest). 
 
-On the table there is a book. An adventures guide to the Planes book - It's a story about a man who gets transported to one of the other planes just as God destroyes the over plane. Book inside the book contains the book "An adventures guide to the planes". In the drawers there is also a map and Tezzaran recognises the fort marking as Malacham, Nightingale and Bastion recognises the small town marked with a start and a right arrow as Kirkwick. Baka and Oriaanna recognise Dumadorf as a fort marked with an star and an upwards arrow and identify the smaller town that come off it as Rikby and Balk. The fort Directly North of Dimadorf is Aurwalk. Bastion recognises the fort right in the top in the peninsula is Myrkullan. 
+On the table there is a book. An adventures guide to the Planes book - It's a story about a man who gets transported to one of the other planes just as God destroyes the over plane. Book inside the book contains the book "An adventures guide to the planes". In the drawers there is a partially written note and a map. On the map Tezzaran recognises the fort marking as Malacham, Nightingale and Bastion recognises the small town marked with a start and a right arrow as Kirkwick. Baka and Oriaanna recognise Dumadorf as a fort marked with an star and an upwards arrow and identify the smaller town that come off it as Rikby and Balk. The fort Directly North of Dimadorf is Aurwalk. Bastion recognises the fort right in the top in the peninsula is Myrkullan. 
 
 The party decides to leave as soon as possible but they want to rest and heal up first.  While the party is resting Tezzaran discovers that the pouch is actually Heward's Handy Spice Pouch and goes to the kitchen to makes the perfect Vegetable stew to aid in the healing of his compansions. 
+
+Tezzaran notices that the third book on the table named BFG has been leafed through more often than the other books. He then realises that the mysterious notes refer to specific letters on particular pages of the book translates the first note.  
+
+-------------------
+My Child,
+
+Bird and robot, travelling West from K church town. Collect.
+Angel and Turtle, travelling North from D city. Collect.
+Blue man and frog, location unknown.
+
+Great Mother knows best
+
+-------------------
+
+The party moves on and makes their way out of the dungeon while Tezzaran thumbs through the BFG decodes the other note.  
+
+-------------------
+Mother,
+
+All packages collect. In transit.
+
+Something wrong. Children strange...
+
+-------------------
+
+We hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves.
+
+We leave the cave and there are mountains surrounding us on all sides. Given the map we found in the cave, Tezzaran petitions the party to go West, in search of a landmark. We find a cluster of trees in the mountain range and we decide to rest up for the day. 
+
+*DING DING DING*
