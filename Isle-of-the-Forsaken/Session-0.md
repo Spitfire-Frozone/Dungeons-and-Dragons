@@ -52,6 +52,48 @@ At this point, all of Tiamats heads turn to look at a mountain in the distance. 
 
 *vision fades*
 
+## Day 1 
 
+We awake underground in a dungeon, the ceiling is made of rock. Ancient scratches of pickaxes are still visible. There are corridoors in three directions with tracks that line the room and go down these corridors. In the centre there is a rotating platform to allow trolleys to change tracks. These tracks are old. 
 
+A lattice of bars seperate us from the rest of the room and in it is a forbidding padlocked door. Outside of the cell there is a wooden chest to the side with all equipment in it. Nightingale recall thats we were handled by two groups of people. 
 
+Nightingale was able to stealthily keep a lock picking device upon being captured and Tezzaran helps Nightingale open the lock. The chest is then opened. Faint sound of rushing water can be heard from the North. We don our gear and head in the direction of the running water. The G'rung looks very exhausted and requires a water bath. 
+
+We follow the sound of water to a room with a waterfall and the G'rung decides to jump into the water. G'rung is beset by a swarm of Quippers, and shrieks for help and the party attacks the Quippers. Orianna readys a shocking grasp for when the water is cleared. 
+~~~
+Orianna: G'rung get out of the water!
+~~~
+Tezzaran rushes up the waters edge and throws a rope over the side of the lake to allow the G'rung to climb up and escape. 
+~~~
+Tezzaran: G'rung, use this to climb up!
+~~~
+The G'rung dissappears under the water and makes a mighty leap off the floor holding it's hammer in the air and brings it down on the fish. Nightingale stabs the fish again, and Orianna attempts the same maneouvre.
+~~~
+Orianna (more sternly): G'rung. Get. Out. Of. The. Water!
+~~~
+
+Tezzaran seeing that the G'rung is more than capeable of getting out fires a firebolt at the remaing fish in the school and kills them. Tezzaran and Nightingale then use the rope to help Bastion out of the water. 
+
+Nightingale spots a twinking thing in the the mouth of the river. She dives in the water and finds bags of money, and sees they are coming from the dead skeleton of a dwarf, around its neck is a silver pendant with a picture of a smiling dwarf woman which Nightingale puts arounds her neck.
+
+Tezzaran asks Nightingale what she saw under the water and realises that the bird that has been with us does not have a name.
+~~~
+Tezzaran: What is your name? 
+Nightingale: ??? 
+Tezzaran: Do you have a name?
+Nightingale: *shakes head* 
+Baka: Would you like us to give you a name?
+Nightingale: *nods head* 
+Baka: Why don't you give us a noise. 
+Nightingale: *makes bird noises* 
+Baka: That .. sounds the common Nightingale
+Nightingale: Nightingale?
+Baka: You like that yes?
+Nightingale: Yes
+Tezzaran: So you would like be called to be Nightingale then 
+Nightingale: Nightingale then
+~~~
+
+The rest of the party introduces themselves to each other [Baka, Bastion, G'rung, Nightingale, Tezzaran and Orianna]
+while the G'rung rehydrates and recalls the collective dream that they that past night and that they each inhabited the mind of another character. The party then heads  
