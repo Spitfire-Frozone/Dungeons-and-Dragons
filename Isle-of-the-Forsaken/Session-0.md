@@ -60,17 +60,17 @@ A lattice of bars seperate us from the rest of the room and in it is a forbiddin
 
 Nightingale was able to stealthily keep a lock picking device upon being captured and Tezzaran helps Nightingale open the lock. The chest is then opened. Faint sound of rushing water can be heard from the North. We don our gear and head in the direction of the running water. The G'rung looks very exhausted and requires a water bath. 
 
-We follow the sound of water to a room with a waterfall and the G'rung decides to jump into the water. G'rung is beset by a swarm of Quippers, and shrieks for help and the party attacks the Quippers. Orianna readys a shocking grasp for when the water is cleared. 
+We follow the sound of water to a room with a waterfall and the G'rung decides to jump into the water. G'rung is beset by a swarm of Quippers, and shrieks for help and the party attacks the Quippers. Oriaanna readys a shocking grasp for when the water is cleared. 
 ~~~
-Orianna: G'rung get out of the water!
+Oriaanna: G'rung get out of the water!
 ~~~
 Tezzaran rushes up the waters edge and throws a rope over the side of the lake to allow the G'rung to climb up and escape. 
 ~~~
 Tezzaran: G'rung, use this to climb up!
 ~~~
-The G'rung dissappears under the water and makes a mighty leap off the floor holding it's hammer in the air and brings it down on the fish. Nightingale stabs the fish again, and Orianna attempts the same maneouvre.
+The G'rung dissappears under the water and makes a mighty leap off the floor holding it's hammer in the air and brings it down on the fish. Nightingale stabs the fish again, and Oriaanna attempts the same maneouvre.
 ~~~
-Orianna (more sternly): G'rung. Get. Out. Of. The. Water!
+Oriaanna (more sternly): G'rung. Get. Out. Of. The. Water!
 ~~~
 
 Tezzaran seeing that the G'rung is more than capeable of getting out fires a firebolt at the remaing fish in the school and kills them. Tezzaran and Nightingale then use the rope to help Bastion out of the water. 
@@ -95,7 +95,15 @@ Tezzaran: So you would like be called to be Nightingale then
 Nightingale: Nightingale then
 ~~~
 
-The rest of the party introduces themselves to each other [Baka, Bastion, G'rung, Nightingale, Tezzaran and Orianna]
+The rest of the party introduces themselves to each other [Baka, Bastion, G'rung, Nightingale, Tezzaran and Oriaanna]
 while the G'rung rehydrates and recalls the collective dream that they that past night and that they each inhabited the mind of another character. 
 
-The party then heads back south. Nightingale hears a hiss of snakes up ahead and slinks off to investigate alone. 
+The party then heads back south back to the prison room. Nightingale hears a hiss of snakes up to the west ahead and slinks off to investigate alone, she returns and G'rung and her head sound, but hastily retreat when they hear the sound of crushing flesh. The head back North and in another x-junction, see some black smoke to the North, which Baka and Tezzaran investigate, it seems to come through from the other side and is unnatural, and . Nightingale motions towards Tezzaran and the party realises that Nightingale saw a Vedalken with the same smoke coming from their eyes.
+
+G'rung and Bastion head on down the corridor and discover the room that Nightingale saw. Bastion making no attempt to hide his presence and they are spotted, so the party rushes into combat. 
+
+G'rung rages and dashes into the room and attacks a bandit. Tezzaran and Oriaanna hold firebolts for when the assailants attack, and after one swings and misses G'rung, they release them through a narrow opening and the bandit meets a fiery doom. 
+~~~
+Tezzaran: Nice shooting Oriaanna!
+~~~
+Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots the third with a guiding bolt. Oriaanna finishes off the last one with another firebolt. We enter the kitchen and G'rung spots another group of bandits and bursts down the corridor after them still raging. Nightingale fires an arrow, 
