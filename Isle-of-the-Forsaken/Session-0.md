@@ -16,7 +16,7 @@ Vistra: If you manage to stop the dragon and save our civilisation, it will owe 
 ~~~
 *vision fades*
 
-Vast armies are facing dragons in open fields. There are far too many dragons for us to possibly win. Thunder rocks our bodies as we see the largest dragon we have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. It is accompanied by three smaller dragons.  
+Vast armies are facing dragons in open fields. There are far too many dragons for us to possibly win. Thunder rocks our bodies as we see the largest dragon we have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. It is accompanied by three smaller dragons; a red one a white one and a green one.  
 
 ~~~
 Paelias: If we survive this, the first rounds on me!
@@ -24,4 +24,7 @@ Paelias: If we survive this, the first rounds on me!
 Vani: I'll hold you to that. 
 ~~~
 
-The dragons are riding past us and we try to get their attention. Sora conjours up a storm with a northern wind to try and impede the dragons. Paelius and Vani petition Tiamat to face us in battle rather than go for the city. Orla-Nim opens up a portal to a nearly fortress and she and Baern jump in it. She then manages to get Tiamat's attention by casting crown of stars into her side, and Tiamat heads for the fortress where the attack came from and claps her good. The portal dissapears.  
+The dragons are riding past us and we try to get their attention. Sora conjours up a storm with a northern wind to try and impede the dragons. Paelius and Vani petition Tiamat to face us in battle rather than go for the city. Orla-Nim opens up a portal to a nearly fortress and she and Baern jump in it. Vani heads straight for Tiamat and tries to fire an arrow but it misses. Orla-Nim She then manages to get Tiamat's attention by casting crown of stars into her side, and Tiamat heads for the fortress where the attack came from and claps her good. The portal dissapears.
+
+
+ Orla-Nim is healed by Baern and then Tiamat then breaths cold on the tower freezing and killing the horses. Meanwhile a white dragon land and Paelius engages it in combat slashing it with her swords, seeing her teammate in battle, Vani rides to the back of the dragon leaps of her horse, clambers up the back of the White dragon, and slices through it's neck, killing the white dragon. Green dragon then poison breaths us. Vola-shump attacks the Green and Red dragons with a Prismatic Ray. 
