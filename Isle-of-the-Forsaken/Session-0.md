@@ -106,4 +106,9 @@ G'rung rages and dashes into the room and attacks a bandit. Tezzaran and Oriaann
 ~~~
 Tezzaran: Nice shooting Oriaanna!
 ~~~
-Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots the third with a guiding bolt. Oriaanna finishes off the last one with another firebolt. We enter the kitchen and G'rung spots another group of bandits and bursts down the corridor after them still raging. Nightingale fires an arrow, 
+Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots the third with a guiding bolt. Oriaanna finishes off the last one with another firebolt. We enter the kitchen and G'rung spots another group of 5 bandits and bursts down the corridor after them still raging but misses its initial attack. 
+~~~
+Oriaanna: Why do we let the G'rung lead!
+~~~
+Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die.  
+
