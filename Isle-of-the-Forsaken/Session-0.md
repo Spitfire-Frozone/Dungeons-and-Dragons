@@ -110,7 +110,9 @@ Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots
 ~~~
 Oriaanna: Why do we let the G'rung lead!
 ~~~
-Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die but before this G'rung fumbles an attack and takes an attack of opportunity from one of the bandits. They flump to the floor unconscious. Baka heals the G'rung up, and Tezzaran heals Nightingale up a bit.  
+Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die but before this G'rung fumbles an attack and takes an attack of opportunity from one of the bandits. They flump to the floor unconscious. Baka heals the G'rung up, and Tezzaran heals Nightingale up a bit. The bandits have black eyes and paler skin than normal for their races. 
+
+Nightingale finds a scrap of paper with "I Love You" in Infernal which . Each of the Spider ring. 
 
 
 
