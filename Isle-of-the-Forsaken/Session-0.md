@@ -96,4 +96,6 @@ Nightingale: Nightingale then
 ~~~
 
 The rest of the party introduces themselves to each other [Baka, Bastion, G'rung, Nightingale, Tezzaran and Orianna]
-while the G'rung rehydrates and recalls the collective dream that they that past night and that they each inhabited the mind of another character. The party then heads  
+while the G'rung rehydrates and recalls the collective dream that they that past night and that they each inhabited the mind of another character. 
+
+The party then heads back south. Nightingale hears a hiss of snakes up ahead and slinks off to investigate alone. 
