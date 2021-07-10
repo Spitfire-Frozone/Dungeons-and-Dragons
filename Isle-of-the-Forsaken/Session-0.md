@@ -1,4 +1,4 @@
-# Isle of the Forsaken - Session 0 
+# Isle of the Forsaken - Session 0 - 10/07/21
 
 ## Campaign Hook (Day 0) 
 
@@ -154,4 +154,4 @@ We leave the cave and there are mountains surrounding us on all sides. Given the
 
 *DING DING DING*
 
-Baka uses a newfound power to make a metal bucket to contain the Grung that they can wear. 
+Baka uses a newfound power to make a metal pail to contain the G'rung while they walk around. This pail was modified such that Baka could wear it. 
