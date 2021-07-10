@@ -112,7 +112,14 @@ Oriaanna: Why do we let the G'rung lead!
 ~~~
 Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die but before this G'rung fumbles an attack and takes an attack of opportunity from one of the bandits. They flump to the floor unconscious. Baka heals the G'rung up, and Tezzaran heals Nightingale up a bit. The bandits have black eyes and paler skin than normal for their races. 
 
-Nightingale finds a scrap of paper with "I Love You" in Infernal which . Each of the Spider ring. 
+We raid the bodies and Nightingale finds a scrap of paper with "I Love You" in Infernal. Each of the bandits have a ring with a Spider insignia embossed on it, and we take one for safe-keeping. On the table in the kitchen there is a pouch that feels heavy but when they reach inside there is nothing there. Being unable to find out how it works, Tezzaran takes it on their person. 
 
+We open the door to the South and meet the Boss Vedalken and Goliath that Nightingale spotted in her investigations. G'rung goes straight for the Goliath with its Warhammer and Baka finished it off with a mace donk. The Vedalken Captain slashes Baka and Baka manages to counter one of them. Bastion and Oriaanna . Tezzaran enters the room and tosses a acid vial in the face of the Vedalken Captain. 
+~~~
+Tezzaran: I was saving this for a spicy encounter
+~~~
+The Vedalkens face melts and he collapses. Nightingale make a beeline straight for a chest in the corner, sucessfully picks the lock and triggers an acid trap when she opens it up. Inside the chest is a note written in a code, a sap (which Nightingale claims) along with a precious bust. The Captain has a key around its neck (the one for the chest). 
 
+On the table there is a book. An adventures guide to the Planes book - It's a story about a man who gets transported to one of the other planes just as God destroyes the over plane. Book inside the book contains the book "An adventures guide to the planes". In the drawers there is also a map and Tezzaran recognises the fort marking as Malacham, Nightingale and Bastion recognises the small town marked with a start and a right arrow as Kirkwick. Baka and Oriaanna recognise Dumadorf as a fort marked with an star and an upwards arrow and identify the smaller town that come off it as Rikby and Balk. The fort Directly North of Dimadorf is Aurwalk. Bastion recognises the fort right in the top in the peninsula is Myrkullan. 
 
+The party decides to leave as soon as possible but they want to rest and heal up first.  While the party is resting Tezzaran discovers that the pouch is actually Heward's Handy Spice Pouch and goes to the kitchen to makes the perfect Vegetable stew to aid in the healing of his compansions. 
