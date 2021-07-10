@@ -45,7 +45,12 @@ Orla-Nim pour a potion down Baerns throat, and makes Crown of Stars deal more da
 ~~~
 Vola-Shump: Nooo!
 ~~~
-Seeing Paelius falling off the dragon, Vola-Shump brings out their harp, plays a fiddly tune and flies up to land on Tiamat's back. They savagely swipe at Tiamat, critically savage attacking her. Orla-Nim       
+Seeing Paelius falling off the dragon, Vola-Shump brings out their harp, plays a fiddly tune and flies up to land on Tiamat's back. They savagely swipe at Tiamat, critically savage attacking her. Orla-Nim makes Crown of Stars deal more damage to the Red Dragon before polymorphing into a Giant Ape and pulls Baern out of combat on her back. Tiamat flies up into the sky and once again tries to shake the assailants on her back. Vani gets flung off the dragon into the forest but she manages to use the tree branches to break some of her fall. Vola-Shump and Sola manage to cling on but Tiamat, lands next to the Great Ape and attacks it. Baern summons Spirit Guardians to attack the surrounding dragons makes his spirit weapon pierce Tiamat. 
+
+
+At this point, all of Tiamats heads turn to look at a mountain in the distance. A bright light appears from the mountain and Tiamat shrieks. We bought enough time for the Wizards! As Vani breaths a side of relief. An massive explosion rocks the mountain destorying capital city and a shockwave echoes throughout the surrounding lands. We fade into dust. Vola-Shump and Sola dissapears with Tiamat and wake up in Hell.
+
+*vision fades*
 
 
 
