@@ -28,7 +28,6 @@ Vani: I'll hold you to that.
 ~~~
 The dragons are riding past us and we try to get their attention. Vola-Shump conjours up a storm with a northern wind to try and impede the dragons. Paelius and Vani petition Tiamat to face us in battle rather than go for the city. Orla-Nim opens up a portal to a nearly fortress and she and Baern jump in it. Vani heads straight for Tiamat and tries to fire an arrow but it misses. Orla-Nim She then manages to get Tiamat's attention by casting crown of stars into her side, and Tiamat heads for the fortress where the attack came from and claps her good. The portal dissapears.
 
-
 Orla-Nim is healed by Baern and then Tiamat then breaths cold on the tower freezing and killing the horses. Meanwhile the white dragon lands and Paelius engages it in combat slashing it with her swords and conjours a magic weapon to attack it as well. Seeing her teammate in battle, Vani then rides to the back of the dragon leaps of her horse, clambers up the back of the White dragon, and slices through it's neck, killing the white dragon. The Green Dragon then lands and poison breaths us. Vola-shump attacks the Green and Red dragons with a Prismatic Ray. Orla-Nim then Dimension Doors with Baern out of combat with Tiamat to behind the red dragon to attack it with a Crown of Stars. Tiamat then comes to party and hevers 5ft above the ground above Paelias and Vani. The Red Dragon then in response breaths fire on Orla-Nim and Baern, and Baern falls unconscious. Tiamat then breaths a massive cone of poisons hitting the green and red dragons, Vani, Paelias and Sora.
 
 Paelias leaps onto Tiamat and attempts to mount her using her swords to stab the hide and climb Tiamat. Vani attempts to follow suit. She slashes the Green Dragon to get away and leaps for Tiamat, but her attack misses, Vani recovers and uses her Second-Story Work feature to start climbing Tiamat.   
@@ -39,8 +38,15 @@ Sora then runs to the Green Dragon and recklessly attacks it, it misses a retali
 ~~~
 Vola-Shump (to Paelias): Good Work! Keep Going
 ~~~
-Orla-Nim attemps to Disintigrate the Red dragon, but that similarly fails. The Crown of Stars effects attacks the dragons and in then repsone the Red Dragon claws her.
+Orla-Nim attemps to Disintigrate the Red dragon, but that similarly fails. The Crown of Stars effects attacks the dragons and in then repsone the Red Dragon claws her. Tiamat rips into Vola-Shump dealing a nice amount of damage. Paelias manages to climb up Tiamats back while stabbing her with her swords. Vani attempts to follow suit and climbs up Tiamat leg onto her back and stabs her sneakily. Sora recklessly attacks the Green Dragon again and smashes it to a pulp. Vola-Shump uses Tesers Transformation and engages Tiamat in melee combat. 
 
-Tiamat rips into Vola-Shump dealing a nice amount of damage. Paelias
+Orla-Nim pour a potion down Baerns throat, and makes Crown of Stars deal more damage to the Red Dragon. She steps away while shielding herself from the attack of opportunity. Tiamat soars into the sky and attempts to shake off Paelias and Vani, but this fails. She lands in the same place and attacks Vola-Shump. She attempts to whip at Paelias with her tail, but misses. The Red Dragon misses Baern who heals himself and attempts to bonk it with a spiritual weapon. Paelias and Vani attacks Tiamat's black head and it breaths vomits acid on us. Sora runs over to Tiamat and leaps on the base of her tail and smashed her. Tiamat raises her red head and washes her back with fire. Vani slides under a different head of dragon evading damage, but Paelias and Sora aren't so lucky, they fail to evade the attack. Paelias falls unconscious, falling off the dragon and plunging to the earth and Sora retaliates by dealing a brutal critical bash with her warhammer. 
+
+~~~
+Vola-Shump: Nooo!
+~~~
+Seeing Paelius falling off the dragon, Vola-Shump brings out their harp, plays a fiddly tune and flies up to land on Tiamat's back. They savagely swipe at Tiamat, critically savage attacking her. Orla-Nim       
+
+
 
 
