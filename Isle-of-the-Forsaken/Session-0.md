@@ -1,7 +1,10 @@
 # Isle of the Forsaken - Session 0 
 
+## Campaign Hook (Day 0) 
+
 Tezzaran sets out from Malacham to meet up with his friend Grung, upon reaching the usual meeting place be is greeted by some new friends: Bastion the Warforged and Nightingale the Kenku. Bastion would like to accompany Tezzaran back to the city to find the descendants of the family he used to serve. As they rest for the night the four of them are ambushed.
 
+## Past Vision
 *vision fades*
 
 We awake in a vision of the past. We are now. Paelias, Vani (me), Sora, Vola-shumo, Orla, Baern. We are opposite a table from a Vistra Hardheart who says that we need to buy time for the mages to prepare banishment spells to banish the dragons. 
