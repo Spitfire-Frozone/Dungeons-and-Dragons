@@ -6,27 +6,27 @@ Tezzaran sets out from Malacham to meet up with his friend Grung, upon reaching 
 
 *vision fades*
 
-## Past Vision
-We awake in a vision of the past. We are now. Paelias, Vani (me), Sora, Vola-shumo, Orla, Baern. We are opposite a table from a Vistra Hardheart who says that we need to buy time for the mages to prepare banishment spells to banish the dragons. 
+## Past Vision 
 
-Now that we think about it, we know our new compansions, and we have always known them. We have some influence about how this dream goes. We ready ourselved for battle against Tiamat. Our horses have been prepared and we ride for battle. 
+They awake in a vision of the past. They are now. Paelias, Vani (me), Sora, Vola-shumo, Orla, Baern. They are opposite a table from a Vistra Hardheart who says that they need to buy time for the mages to prepare banishment spells to banish the dragons. 
+
+Now that they think about it, they know our new compansions, and they have always known them. they have some influence about how this dream goes. they ready ourselved for battle against Tiamat. Our horses have been prepared and they ride for battle. 
 
 *vision fades*
-
-We ride out through the city and Vistra Hardheart greets us by the gate, 
+They ride out through the city and Vistra Hardheart greets us by the gate, 
 ~~~
 Vistra: If you manage to stop the dragon and save our civilisation, it will owe you a great debt.
 ~~~
 *vision fades*
 
-Vast armies are facing dragons in open fields. There are far too many dragons for us to possibly win. Thunder rocks our bodies as we see the largest dragon we have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. It is accompanied by three smaller dragons; a red one a white one and a green one.  
+Vast armies are facing dragons in open fields. There are far too many dragons for us to possibly win. Thunder rocks our bodies as they see the largest dragon they have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. It is accompanied by three smaller dragons; a red one a white one and a green one.  
 
 ~~~
 Paelias: If we survive this, the first rounds on me!
 
 Vani: I'll hold you to that. 
 ~~~
-The dragons are riding past us and we try to get their attention. Vola-Shump conjours up a storm with a northern wind to try and impede the dragons. Paelius and Vani petition Tiamat to face us in battle rather than go for the city. Orla-Nim opens up a portal to a nearly fortress and she and Baern jump in it. Vani heads straight for Tiamat and tries to fire an arrow but it misses. Orla-Nim She then manages to get Tiamat's attention by casting crown of stars into her side, and Tiamat heads for the fortress where the attack came from and claps her good. The portal dissapears.
+The dragons are riding past us and they try to get their attention. Vola-Shump conjours up a storm with a northern wind to try and impede the dragons. Paelius and Vani petition Tiamat to face us in battle rather than go for the city. Orla-Nim opens up a portal to a nearly fortress and she and Baern jump in it. Vani heads straight for Tiamat and tries to fire an arrow but it misses. Orla-Nim She then manages to get Tiamat's attention by casting crown of stars into her side, and Tiamat heads for the fortress where the attack came from and claps her good. The portal dissapears.
 
 Orla-Nim is healed by Baern and then Tiamat then breaths cold on the tower freezing and killing the horses. Meanwhile the white dragon lands and Paelius engages it in combat slashing it with her swords and conjours a magic weapon to attack it as well. Seeing her teammate in battle, Vani then rides to the back of the dragon leaps of her horse, clambers up the back of the White dragon, and slices through it's neck, killing the white dragon. The Green Dragon then lands and poison breaths us. Vola-shump attacks the Green and Red dragons with a Prismatic Ray. Orla-Nim then Dimension Doors with Baern out of combat with Tiamat to behind the red dragon to attack it with a Crown of Stars. Tiamat then comes to party and hevers 5ft above the ground above Paelias and Vani. The Red Dragon then in response breaths fire on Orla-Nim and Baern, and Baern falls unconscious. Tiamat then breaths a massive cone of poisons hitting the green and red dragons, Vani, Paelias and Sora.
 
@@ -48,19 +48,16 @@ Vola-Shump: Nooo!
 Seeing Paelius falling off the dragon, Vola-Shump brings out their harp, plays a fiddly tune and flies up to land on Tiamat's back. They savagely swipe at Tiamat, critically savage attacking her. Orla-Nim makes Crown of Stars deal more damage to the Red Dragon before polymorphing into a Giant Ape and pulls Baern out of combat on her back. Tiamat flies up into the sky and once again tries to shake the assailants on her back. Vani gets flung off the dragon into the forest but she manages to use the tree branches to break some of her fall. Vola-Shump and Sola manage to cling on but Tiamat, lands next to the Great Ape and attacks it. Baern summons Spirit Guardians to attack the surrounding dragons makes his spirit weapon pierce Tiamat. 
 
 
-At this point, all of Tiamats heads turn to look at a mountain in the distance. A bright light appears from the mountain and Tiamat shrieks. We bought enough time for the Wizards! As Vani breaths a side of relief. An massive explosion rocks the mountain destorying capital city and a shockwave echoes throughout the surrounding lands. We fade into dust. Vola-Shump and Sola dissapears with Tiamat and wake up in Hell.
+At this point, all of Tiamats heads turn to look at a mountain in the distance. A bright light appears from the mountain and Tiamat shrieks. They bought enough time for the Wizards! As Vani breaths a side of relief. An massive explosion rocks the mountain destorying capital city and a shockwave echoes throughout the surrounding lands. They fade into dust. Vola-Shump and Sola dissapears with Tiamat and wake up in Hell.
 
 *vision fades*
 
 ## Day 1 
+They awake underground in a dungeon, the ceiling is made of rock. Ancient scratches of pickaxes are still visible. There are corridoors in three directions with tracks that line the room and go down these corridors. In the centre there is a rotating platform to allow trolleys to change tracks. These tracks are old. 
 
-We awake underground in a dungeon, the ceiling is made of rock. Ancient scratches of pickaxes are still visible. There are corridoors in three directions with tracks that line the room and go down these corridors. In the centre there is a rotating platform to allow trolleys to change tracks. These tracks are old. 
+A lattice of bars seperate us from the rest of the room and in it is a forbidding padlocked door. Outside of the cell there is a wooden chest to the side with all equipment in it. Nightingale recall thats they were handled by two groups of people. 
 
-A lattice of bars seperate us from the rest of the room and in it is a forbidding padlocked door. Outside of the cell there is a wooden chest to the side with all equipment in it. Nightingale recall thats we were handled by two groups of people. 
-
-Nightingale was able to stealthily keep a lock picking device upon being captured and Tezzaran helps Nightingale open the lock. The chest is then opened. Faint sound of rushing water can be heard from the North. We don our gear and head in the direction of the running water. The G'rung looks very exhausted and requires a water bath. 
-
-We follow the sound of water to a room with a waterfall and the G'rung decides to jump into the water. G'rung is beset by a swarm of Quippers, and shrieks for help and the party attacks the Quippers. Oriaanna readys a shocking grasp for when the water is cleared. 
+Nightingale was able to stealthily keep a lock picking device upon being captured and Tezzaran helps Nightingale open the lock. The chest is then opened. Faint sound of rushing water can be heard from the North. they don our gear and head in the direction of the running water. The G'rung looks very exhausted and requires a water bath. They follow the sound of water to a room with a waterfall and the G'rung decides to jump into the water. G'rung is beset by a swarm of Quippers, and shrieks for help and the party attacks the Quippers. Oriaanna readys a shocking grasp for when the water is cleared. 
 ~~~
 Oriaanna: G'rung get out of the water!
 ~~~
@@ -95,7 +92,7 @@ Tezzaran: So you would like be called to be Nightingale then
 Nightingale: Nightingale then
 ~~~
 
-The rest of the party introduces themselves to each other [Baka, Bastion, G'rung, Nightingale, Tezzaran and Oriaanna]
+The rest of the party introduces themselves to each other [Baka the Tortle, Bastion the Warforged, G'rung the Grung, Nightingale the Kenku, Tezzaran the Vedalken and Oriaanna the Aasimar]
 while the G'rung rehydrates and recalls the collective dream that they that past night and that they each inhabited the mind of another character. 
 
 The party then heads back south back to the prison room. Nightingale hears a hiss of snakes up to the west ahead and slinks off to investigate alone, she returns and G'rung and her head sound, but hastily retreat when they hear the sound of crushing flesh. The head back North and in another x-junction, see some black smoke to the North, which Baka and Tezzaran investigate, it seems to come through from the other side and is unnatural, and . Nightingale motions towards Tezzaran and the party realises that Nightingale saw a Vedalken with the same smoke coming from their eyes.
@@ -106,15 +103,11 @@ G'rung rages and dashes into the room and attacks a bandit. Tezzaran and Oriaann
 ~~~
 Tezzaran: Nice shooting Oriaanna!
 ~~~
-Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots the third with a guiding bolt. Oriaanna finishes off the last one with another firebolt. We enter the kitchen and G'rung spots another group of 5 bandits and bursts down the corridor after them still raging but misses its initial attack. 
+Bastion and Nightingale dent a second bandit, Baka enters the room and one-shots the third with a guiding bolt. Oriaanna finishes off the last one with another firebolt. they enter the kitchen and G'rung spots another group of 5 bandits and bursts down the corridor after them still raging but misses its initial attack. 
 ~~~
 Oriaanna: Why do we let the G'rung lead!
 ~~~
-Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die but before this G'rung fumbles an attack and takes an attack of opportunity from one of the bandits. They flump to the floor unconscious. Baka heals the G'rung up, and Tezzaran heals Nightingale up a bit. The bandits have black eyes and paler skin than normal for their races. 
-
-We raid the bodies and Nightingale finds a scrap of paper with "I Love You" in Infernal. Each of the bandits have a ring with a Spider insignia embossed on it, and we take one for safe-keeping. On the table in the kitchen there is a pouch that feels heavy but when they reach inside there is nothing there. Being unable to find out how it works, Tezzaran takes it on their person. 
-
-We open the door to the South and meet the Boss Vedalken and Goliath that Nightingale spotted in her investigations. G'rung goes straight for the Goliath with its Warhammer and Baka finished it off with a mace donk. The Vedalken Captain slashes Baka and Baka manages to counter one of them. Bastion and Oriaanna . Tezzaran enters the room and tosses a acid vial in the face of the Vedalken Captain. 
+Nightingale hits one with an arrow and Tezzaran hurls a warbling mass of chaotic energy that nearest bandit and kills it. G'rung now free of the bandit in front of it decapitates one hiding in a crevice next to it, but fellow bandits go after it. Baka kills ones with a sacred flame, and another slashed Nightingale. Bastion pops up out of a corridor blocks the corridor taking off the non-sword arm of the nearest bandit, and the party take pot shots at the kettled bandits until they die but before this G'rung fumbles an attack and takes an attack of opportunity from one of the bandits. They flump to the floor unconscious. Baka heals the G'rung up, and Tezzaran heals Nightingale up a bit. The bandits have black eyes and paler skin than normal for their races. They raid the bodies and Nightingale finds a scrap of paper with "I Love You" in Infernal. Each of the bandits have a ring with a Spider insignia embossed on it, and they take one for safe-keeping. On the table in the kitchen there is a pouch that feels heavy but when they reach inside there is nothing there. Being unable to find out how it works, Tezzaran takes it on their person. They open the door to the South and meet the Boss Vedalken and Goliath that Nightingale spotted in her investigations. G'rung goes straight for the Goliath with its Warhammer and Baka finished it off with a mace donk. The Vedalken Captain slashes Baka and Baka manages to counter one of them. Bastion and Oriaanna . Tezzaran enters the room and tosses a acid vial in the face of the Vedalken Captain. 
 ~~~
 Tezzaran: I was saving this for a spicy encounter
 ~~~
@@ -147,10 +140,7 @@ All packages collect. In transit.
 Something wrong. Children strange...
 
 -------------------
-
-We hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves.
-
-We leave the cave and there are mountains surrounding us on all sides. Given the map we found in the cave, Tezzaran petitions the party to go West, in search of a landmark. We find a cluster of trees in the mountain range and we decide to rest up for the day.
+They hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves. They leave the cave and there are mountains surrounding us on all sides. G'rung seeks the nearest rock and sits down. Tezzaran asks Nightingale if she can fly up and surveil our surroundings so they can position ourselves on the map. This deeply offends Nightingale (Kenku are former angelic beings who were thrice-cursed by Tharizdun to have no flight, creative spark {which manifests itself as an inability of independent speech or creating novel items} or memory of their angelic existence) and she goes off in a huff, sitting next to G'rung. Baka goes over to console her and Tezzaran profusely apologises. Given they could be anywhere in the mountain range they found on the map found in the cave, Tezzaran petitions the party to go West in search of a landmark, as there are more features on the map in that direction. The party agrees and due West they find a cluster of trees in the mountain range and they decide to rest up for the day.
 
 *DING DING DING*
 
