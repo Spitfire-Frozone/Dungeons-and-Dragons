@@ -139,14 +139,14 @@ All packages collect. In transit.
 Something wrong. Children strange...
 
 -------------------
-They hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves. They leave the cave and there are mountains surrounding us on all sides. G'rung seeks the nearest rock and sits down. Tezzaran asks Nightingale if she can fly up and surveil their surroundings so they can position ourselves on the map. This deeply offends Nightingale
+They hypothesise that the children are the bandits that kidnapped us. Maybe the "children strange" refers to the fact that these possible normal bandits have become smoky-eyes pale versions of themselves. They leave the cave and there are mountains surrounding us on all sides. G'rung seeks the nearest rock and sits down. Tezzaran asks Nightingale if she can fly up and surveil their surroundings so they can position ourselves on the map. This deeply offends Nightingale and she goes off in a huff, sitting next to G'rung.
 
 <details>
-  <summary>Aside: Kenku Lore</summary>
-Kenku are former angelic beings who were thrice-cursed by Tharizdun to have no flight, creative spark (which manifests itself as an inability of independent speech or creating novel items) or memory of their angelic existence. 
+  <summary> *Aside: Kenku Lore* </summary>
+*Kenku are former angelic beings who were thrice-cursed by Tharizdun to have no flight, creative spark (which manifests itself as an inability of independent speech or creating novel items) or memory of their angelic existence.* 
 </details>
 
-and she goes off in a huff, sitting next to G'rung. Baka goes over to console her and Tezzaran profusely apologises. Given they could be anywhere in the mountain range they found on the map found in the cave, Tezzaran petitions the party to go West in search of a landmark, as there are more features on the map in that direction. The party agrees and due West they find a cluster of trees in the mountain range and they decide to rest up for the day.
+Baka goes over to console her and Tezzaran profusely apologises. Given they could be anywhere in the mountain range they found on the map found in the cave, Tezzaran petitions the party to go West in search of a landmark, as there are more features on the map in that direction. The party agrees and due West they find a cluster of trees in the mountain range and they decide to rest up for the day.
 
 *DING DING DING*
 
