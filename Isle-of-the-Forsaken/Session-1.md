@@ -82,26 +82,24 @@ A river is seen by the party to the south. It is the River Aur. The last of the 
 
 ## Day 6 (April 19th) - Weather: Sunny with Moderate Wind.
 
-Before the party sets off, Tezzaran buries the now off meat just outside of camp. The town is in sight! In the morning we encounter a cuboidal metal deivce with two metal cups on one end. Nightingale waves us forward. She rights the box, adds some water to both the cups. This causes the object to spark and Nightingale, squarks,  flaps her wings and retreats.
+Before the party sets off, Tezzaran buries the now off meat just outside of camp. The town is in sight! In the morning  a cuboidal metal deivce with two metal cups on one end is encountered. Nightingale waves us forward. She rights the box, adds some water to both the cups. This causes the object to spark and Nightingale, squarks, flaps her wings and retreats.
 
 ~~~
-G'rung:Is this pub?
+G'rung: Is this pub?
 Tezzaran and Oriaanna: No! Get away!
 G'rung: But this pub though
 Tezzaran: No big boom!
-G'rung: *BOING*
+G'rung: oh no *boings backwards*
 
 * Party waits for a boom in shocked silence *
 
 G'rung: It no boom
 Tezzaran: Perhaps not. 
 ~~~
-Tezzaran and G'rung go over to try and stop the sparking
-
-Tezzaran wants to get rid of the water by knocking it over and before anyone can do anything G'rung picks it up and gets a nasty shock, but does manage to knock most of the water out by knocking it on it's side. Its still sparking a bit. 
+Tezzaran and G'rung go over to try and stop the metal box sparking. Tezzaran wants to get rid of the water in the cups by knocking it over and before Tezzaran can tell G'rung otherwose, he picks it up and gets a nasty shock, but does manage to knock most of the water out by knocking it on it's side. Its still sparking a bit. 
 
 ~~~
 Tezzaran: Hmm. Square. Stores lighting energy. Sparks in contact with water. I think its Power Generation Unit. or PUG. I've never seen one before but it's very strange how it's just in the road like this.  
 ~~~
 
-In the afternoon, the ground starts shaking underfoot, and the party get knocked over save for Bastion and G'rung, but after this we decide to head to the town. 
+In the afternoon, the ground starts shaking underfoot, and the party get knocked over save for Bastion and G'rung, but after this the party decide to head to the town. 
