@@ -1,12 +1,12 @@
 # Isle of the Forsaken - Session 0 - 10/07/21
 
-## Campaign Hook (Day 0) 
+## Campaign Hook (Day 0)
 
 Tezzaran sets out from Malacham to meet up with his friend Grung, upon reaching the usual meeting place he is greeted by some new friends: Bastion the Warforged and Nightingale the Kenku. Bastion would like to accompany Tezzaran back to the city to find the descendants of the family he used to serve. As they rest for the night the four of them are ambushed.
 
 *vision fades*
 
-## Past Vision 
+## Past Vision
 
 They awake in a vision of the past inhabiting different bodies: Paelias, Vani (me), Sora, Vola-shumo, Orla, Baern. They are opposite a table from a Vistra Hardheart who says that they need to buy time for the mages to prepare banishment spells to banish the dragons. 
 
@@ -52,7 +52,7 @@ At this point, all of Tiamats heads turn to look at a mountain in the distance. 
 
 *vision fades*
 
-## Day 1 
+## Day 1
 They awake underground in a dungeon, the ceiling is made of rock. Ancient scratches of pickaxes are still visible. There are corridoors in three directions with tracks that line the room and go down these corridors. In the centre there is a rotating platform to allow trolleys to change tracks. These tracks are old. 
 
 A lattice of bars seperate the party from the rest of the room and in it is a forbidding padlocked door. Outside of the cell there is a wooden chest to the side with all equipment in it. Nightingale recall thats they were handled by two groups of people. There are two additional people in the cell with the ambushed party. Some sort of Tortle and a Celestial.
@@ -146,8 +146,8 @@ They hypothesise that the children are the bandits that kidnapped us. Maybe the 
 Kenku are former angelic beings who were thrice-cursed by Tharizdun to have no flight, creative spark (which manifests itself as an inability of independent speech or creating novel items) or memory of their angelic existence. 
 </details>
 
-Baka goes over to console her and Tezzaran profusely apologises. Given they could be anywhere in the mountain range they found on the map found in the cave, Tezzaran petitions the party to go West in search of a landmark, as there are more features on the map in that direction. The party agrees and due West they find a cluster of trees in the mountain range and they decide to rest up for the day.
+Baka goes over to console her and Tezzaran profusely apologises. Given they could be anywhere in the mountain range they found on the map found in the cave, Tezzaran petitions the party to go West in search of a landmark, as there are more features on the map in that direction. The party agrees and goes due West until they find a cluster of trees in the mountain range and they decide to rest up for the day.
 
 *DING DING DING*
 
-Baka uses a newfound power to make a metal pail to contain the G'rung while they walk around. This pail was modified such that Baka could wear it. 
+Baka uses a newfound power to make a metal pail to contain the G'rung while they walk around. This pail was modified such that Baka could wear it. It is named the Grucket.
