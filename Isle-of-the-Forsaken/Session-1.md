@@ -84,15 +84,21 @@ Nightingale at the mention of pubs/taverns looked very unconfortable.
 
 We talk about pubs. 
 
+We see a river to the south. It is the River Aur.
+
 ## Day 6 (April 19th) - Weather: Sunny with Moderate Wind.
 
 Before the party sets off, Tezzaran buries the now off meat just outside of camp. The town is in sight! In the morning we encounter a cuboidal metal deivce with two metal cups on one end. Nightingale waves us forward. She rights the box, adds some water to both the cups. This causes the object to spark and Nightingale, squarks,  flaps her wings and retreats.
 
 ~~~
-Is this pub?
-Tezzaran and Oriaanna: No! Get away.
-But this pub though
+G'rung:Is this pub?
+Tezzaran and Oriaanna: No! Get away!
+G'rung: But this pub though
 Tezzaran: No big boom!
+G'rung: *BOING*
+
+* Party waits for a boom in shocked silence *
+
 G'rung: It no boom
 Tezzaran: Perhaps not. 
 ~~~
