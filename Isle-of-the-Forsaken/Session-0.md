@@ -52,6 +52,7 @@ At this point, all of Tiamats heads turn to look at a mountain in the distance. 
 
 *vision fades*
 
+# Isle of the Forsaken - Session 1 - 10/07/21
 ## Day 1
 They awake underground in a dungeon, the ceiling is made of rock. Ancient scratches of pickaxes are still visible. There are corridoors in three directions with tracks that line the room and go down these corridors. In the centre there is a rotating platform to allow trolleys to change tracks. These tracks are old. 
 

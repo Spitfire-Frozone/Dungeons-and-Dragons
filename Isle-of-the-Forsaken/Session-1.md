@@ -1,4 +1,4 @@
-# Isle of the Forsaken - Session 1 - 25/09/21
+# Isle of the Forsaken - Session 2 - 25/09/21
  
 
 ## Day 2 (April 15th) - Weather: Snowy
