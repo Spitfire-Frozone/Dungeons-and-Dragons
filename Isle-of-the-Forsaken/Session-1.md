@@ -103,3 +103,4 @@ Tezzaran: Hmm. Square. Stores lighting energy. Sparks in contact with water. I t
 ~~~
 
 In the afternoon, the ground starts shaking underfoot, and the party get knocked over save for Bastion and G'rung, but after this the party decide to head to the town. 
+
