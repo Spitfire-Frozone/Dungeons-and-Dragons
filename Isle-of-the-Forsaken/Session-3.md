@@ -64,7 +64,7 @@ Entropy: Entropy
 Astar: I'm Astar and he's Chairon. 
 ~~~
 
-On the way to the forest. Entropy explains that she is training to be an adventurer like us. The town has an elder system, made up of the most senior of each of the professions. The forest we are going starts of semi-lush but quickly turns into one where the trees have gnarles leaves and what would be underbush is more spiiked vines and dead plants. It's conspiciously absent of any bird noise. This happened about a month ago after a thunderstorm and this darkness is spreading towards the town. They do not know what the creature looks like. 
+On the way to the forest. Entropy explains that they are training to be an adventurer like us. The town has an elder system, made up of the most senior of each of the professions. The forest we are going starts of semi-lush but quickly turns into one where the trees have gnarles leaves and what would be underbush is more spiiked vines and dead plants. It's conspiciously absent of any bird noise. This happened about a month ago after a thunderstorm and this darkness is spreading towards the town. They do not know what the creature looks like. 
 
 Looking around. Tezzaran finds an absence of any creature tracks at all. 
 
@@ -137,17 +137,15 @@ G'rung bounces over to Tezzaran and they pull the body out from underneath befor
 ~~~
 Tezzaran: This one is alive! Baka heal this man! 
 Baka: This man is clearly dead. You probably need some 
-Tezzaran: *Looking more closely an examining the body in more detail* How could I have missed this? 
+Tezzaran: *Looking more closely an examining the body in more detail* How could I have missed this? Or this?
+Baka: *explains to Tezzaran features of this dead body*
 ~~~
 
-Nightingale loops one end of a rope  throws a rope into the trees to try and help Mormo get down. Mormo falls out of the tree, but Astar manages to catch him. 
+Nightingale loops one end of a rope and throws it into the trees to try and help Mormo get down. Mormo fails to get into the coil and catches the loop in the wrong way. falls out of the tree, but Astar manages to catch him before he smashes into the tree and Nightingale and G'rung slowly lower him to the ground. 
 
-Tezzaran with something to prove comes over and he wouldn't have survived the night. He secures the leg in a splint.
+Tezzaran with something to prove comes over and rigorously examines Mormo. He determines that he wouldn't have survived the night without medical help. He secures the leg in a splint and Oriaanna heals him. 
 ~~~ 
-
+Tezzaran:
+Tezzaran: Can you identify the other body as Robert?
 ~~~
-Oriaanna. Tezzaran.  Entropy identifies the other body as Robert. The Grung and Entropy 
-
-Tezzaran 
-
-The party heads back into town without further incident, and heads to the church. 
+ Tezzaran.  Entropy identifies the other body as Robert. The Grung and Entropy carry this body. Tezzaran offers to make a makeshift stretcher out of the spears of the tiefling underlings and a bedroll, and Baka kindly offers theirs. With this the tieflings take Mormo and the party heads back into town without further incident, and heads to the church. 
