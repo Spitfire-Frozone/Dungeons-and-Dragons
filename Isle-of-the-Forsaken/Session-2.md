@@ -102,5 +102,5 @@ Tezzaran and G'rung go over to try and stop the metal box sparking. Tezzaran wan
 Tezzaran: Hmm. Square. Stores lighting energy. Sparks in contact with water. I think its Power Generation Unit. or PUG. I've never seen one before but it's very strange how it's just in the road like this.  
 ~~~
 
-In the afternoon, the ground starts shaking underfoot, and the party get knocked over save for Bastion and G'rung, but after this the party decide to head to the town. 
+In the afternoon, the ground starts shaking underfoot, and the party get knocked over save for Bastion and G'rung, but after this the party recovers and after days of travel have reached the gates of town... 
 
