@@ -104,10 +104,50 @@ G'rung: Me found it.
 
 The party launches an attack on the creature. When Oriaanna fires a firebolt she notices that it does not much damage to it. Tezzaran noticing that fire had little effect attempts to throw an acid vial at it but misses. Orianna switches to fire a Witch Bolt at the creature, but it only seems to heal some of the damage done by Oriaanna. 
 
-The vined creature take a step forward and bludgeoned G'rung with a big hit. Our three tiefling compatriots step forward to attack the creature. G'rung rages and attack. Baka steps forwards and misses a Guiding Bolt but steps into melee distance and heals G'rung. Bastion misses a longsword hit.
+The vined creature take a step forward and bludgeoned G'rung with a big hit. Our three tiefling compatriots step forward to attack the creature. G'rung rages and smashes the mound with his warhammer. Baka steps forwards and misses a Guiding Bolt but steps into melee distance and heals G'rung. Bastion misses a longsword hit.
 
 Tezzaran jogs forward to a spot where nobody is in front of the creature and misses another throw with an acid vial. 
 ~~~
 Tezzaran: Ah pish. I'll just hit it with magic.
 ~~~
-Oriaanna fires a magic missile at the creature. 
+Oriaanna fires a magic missile at the creature. Our tiefling compatriots take small chunks out of it. Nightingale sneakily stabs the big creature in the back, and it shreaks, flailing it's vines falls back and collapses into the hole. 
+
+~~~
+G'rung: Me think it's dead.
+~~~
+G'rung is pretty sure it's dead, but is so angry at the mossy creature, he hits it anyway. The creature did not move. The party is still weary of the creature and Baka readies their weapon just in case and the rest of the party in turns tries to check if the creature is dead, but it doesn't seem to be alive in the way we know it. The party thinks that perhaps the lightning storm before was responsible for animating this creature and that if the creature was going to move, some form of lightning could do so.
+
+The tieflings underlings are happy it's dead and are heading off to the base of the tree with the person in it. It's Mormo, but when they ask him to get down shakes his head and stares at the creature intently. Nightingale syping the cowering Mormo pours oil over the creature and lights the oil. The oil burns but the vegitiation of the creature doesn't seem to be on fire. Nightingale runs around to try and get more twigs to stoke the fire.  
+
+Bastion and Tezzaran heads over to the tree with Mormo in it. Tezzran 
+~~~ 
+Tezzaran: Mormo, Are you still in the tree because you think the creature is not dead.
+Mormo: It's done this before. It was very still from the time the scouts left until you arrived.
+Tezzaran: OK! I think we should keep attacking it. 
+~~~
+Oriaanna upon hearing this conversation fires a crossbow at the monster and it doesn't react. The tiefling underlings attempt to climb the tree to reach Mormo. Nightingale piles more wood on the fire to keep their fire going, and the moss and twigs on the creature starts turning grey. G'rung attacks again with the warhammer and the vines crumble like dead wood. 
+~~~ 
+G'rung: It's dead. Me know forest. You can come down now. 
+~~~
+Baka taps on the creature with their mace for good measure. Tezzaran wants to see how this creature dies for itself and hacks at the branches with his sickle. As he does this a body is revealed, which falls from creature and goes underneath. 
+~~~
+Tezzaran: Oh there was a body here. Someone help me get it out before it burns!
+~~~
+G'rung bounces over to Tezzaran and they pull the body out from underneath before the fire hits it. Tezzaran tries to assess the condition of this man. 
+~~~
+Tezzaran: This one is alive! Baka heal this man! 
+Baka: This man is clearly dead. You probably need some 
+Tezzaran: *Looking more closely an examining the body in more detail* How could I have missed this? 
+~~~
+
+Nightingale loops one end of a rope  throws a rope into the trees to try and help Mormo get down. Mormo falls out of the tree, but Astar manages to catch him. 
+
+Tezzaran with something to prove comes over and he wouldn't have survived the night. He secures the leg in a splint.
+~~~ 
+
+~~~
+Oriaanna. Tezzaran.  Entropy identifies the other body as Robert. The Grung and Entropy 
+
+Tezzaran 
+
+The party heads back into town without further incident, and heads to the church. 
