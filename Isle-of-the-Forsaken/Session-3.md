@@ -5,7 +5,7 @@
 
 The party sets foot within the gates. Directly head of us is an inn called the Rivers Bounty, it's walls hold an insignia of a fish leaping between two mugs of ale. They see a young Human woman (Ginger hair, athletic build 5'11ft tall, grey eyes and brown skin) running towards the inn, hopping the fence and dashes in the front door. From behind the inn another person (olive skinned and with black hair) hopping the fence to a building to the west. 
 
-The party are slightly bewildered at these events, adn teh woman seems slightly panicked. After a minute, a scream is heard from the tavern and the ginger woman bursts out. She is accompanied by a blonde-haired skinny woman. They both hops the fence and runs in a southernly direction. Tezzaran calls out to them. 
+The party are slightly bewildered at these events, and the woman seems slightly panicked. After a minute, a scream is heard from the tavern and the ginger woman bursts out. She is accompanied by a blonde-haired skinny woman. They both hops the fence and runs in a southernly direction. Tezzaran calls out to them. 
 
 ~~~
 Tezzaran: Do you need help?
@@ -148,6 +148,4 @@ Tezzaran: This man needs proper medical attention, but in the meantime does anyo
 Tezzaran: Also Entropy, can you identify the other body as Robert so we can get out of here?
 ~~~
 
-Entropy identifies the other body as Robert (she doesn't seem all that fussed). After some prodding by G'rung, Entropy  and G'rung carry this body, Baka offers to join and is once again surprised at the strength of the frog. Tezzaran offers to make a makeshift stretcher out of the spears of the tiefling underlings and a bedroll, and Baka kindly offers theirs. He cobbles together a stretcher that isn't pretty and probably will fall apart after not too long, but will get the job done and with this, the tieflings and Bastion take Mormo and the party heads back into town without further incident. 
-
-Upon arriving in the village, the party heads to the church. 
+Entropy identifies the other body as Robert (Entropy doesn't seem all that fussed). After some prodding by G'rung, Entropy  and G'rung carry this body, Baka offers to join and is once again surprised at the strength of the frog. Tezzaran offers to make a makeshift stretcher out of the spears of the tiefling underlings and a bedroll, and Baka kindly offers theirs. He cobbles together a stretcher that isn't pretty and probably will fall apart after not too long, but will get the job done and with this, the tieflings and Bastion take Mormo and the party heads back into town. 
