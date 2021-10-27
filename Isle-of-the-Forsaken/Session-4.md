@@ -70,7 +70,7 @@ Tezzaran: The creature to ash. In my experience, creatures do not come back from
 Damacos asks Tezzaran if they would accompany us on a hunt tomorrow. Jasmaal comes in and admonishes Damacos for this.
 ~~~
 Tezzaran: How pressing is the need for a second hunt. 
-Bastion: That was not the main objective of the party. 
+Bastion: That was not the main objective of the party when we arrived. 
 Tezzaran: I think we will have to discuss this as a party this evening, preferably over a stiff drink. 
 Damacos: We have a riverweed ale
 ~~~
@@ -90,5 +90,42 @@ Baka asks what gods are followed in this place. He is told that there are three 
 Tezzaran directs the party to the Rivers Bounty and picks up Nightingale outside who was drawing a sketch of the town. Tezzaran gives it a perusal and offers some words of encouragement about the piece as he levels the work against the horizon. Nightingale is a bit hesitant about going to the pub, and raises her hood.
 
 
+In the Rivers Bounty, a white-skinned red-haired tieflings is running around (Barakas). Tezzaran explains the concept of buying to the G'rung in a rather protracted process.
+Other bar staff had a loss in the family  
 
+2 silver G'grung
+
+~~~
+Bastion: *upends drink* That wasn't very stiff. 
+Tezzaran: ahh, note to self. I think the stiffness meant that the drink has alcohol in it, not the property of the liquid itself 
+Bastion: Understood. Perhaps we freeze it next time.
+~~~
+
+Tezarran teaches, cheering to the G'ung but Grung is too vigourous. and smashed his glass, and shards of glass embedd the frogs skin. Tezzaran puts on his gloves and helps take the shards out, but 
+
+A man comes over to clean the glass and say he will get it reblown. 
+
+The party has a discussion about what their long terms goals are. 
+~~~
+G'rung: Wants to find out who took us and why? Find them, we talk them and kill them.
+Bastion: I require a large library. for a pupose larger than this
+Oriaana: Was interested in visitng this part of the world. She works for troubled individuals in her city, currently on an ambassadorial role. 
+Baka: Here to protect my friend Oriaana, who is here on a work trip. 
+
+Tezzaran: Interested in adventure, but that question about why were specifically were chosen irks me. Gets out the map. In the short terms I would like to decipher this and orient myself. 
+
+Nightingale: *stabs the map in a particular spot* 
+
+
+Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way
+Oriaana: Dimadorf has a library.
+~~~
+The party gets food from the bar. 
+Nightingale peels off and goes fishing in the river. 
+
+## Day 7 (Tuesday April 19th) - Weather: Foggy with Calm Wind
+
+Damacos joins the party for breakfast. Two items of your choice (or on commission) for the whole party from the crafters in town. Carpenters, Forge, Blacksmith, Bower, Potter+Glassbower, Tanner. 
+
+Meeting at the church shortly. 
 
