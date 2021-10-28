@@ -82,7 +82,7 @@ Damacos asks Tezzaran if they would accompany us on a hunt tomorrow. Jasmaal com
 Tezzaran: How pressing is the need for a second hunt. 
 Bastion: That was not the main objective of the party when we arrived. 
 Tezzaran: I think we will have to discuss this as a party this evening, preferably over a stiff drink. 
-
+Bastion: I would like to see this stiff drink.
 Damacos: We have a riverweed ale
 Tezzaran: I cannot commit us to cause
 Damacos: I understand
@@ -122,17 +122,29 @@ Tezzaran: That's fine. I'm happy to wait.
 ~~~
 Tezzaran offers to buy a round of drinks for everyone, and asks people what they want.  
 ~~~
-Baka
-
+Baka: I'll have a wine please, but can you make it warm? 
+Oriaanna: A wine for me as well please.
+Tezaran: I think i'll try that ale that Damacos recommended. 
 Tezaran: What about Nightingale and Bastion?
-Oriaanna
-Nightingale: seeeing everyone else has one *nods head*
+Oriaanna: *Goes over to the where Nightingale and Bastion are* Would you like a drink. 
+Bastion: I would like the stiff drink please.
+Nightingale: seeeing everyone else in the place has at least one galss in front of them *nods head*
+Oriaanna: What would you like, ale?
+Nightingale: *shrugs indifferently*
+Oriaanna: Wine?
+Nightingale: *shrugs indifferently*
+Oriaanna: Liquor?
+Nightingale: *completely lost*
 Passing bartender: I think you'll find it's either ale or water Where do you think we grow the grapes to make wine?
-
+Oriaanna: *walks back to the bar* They only do ale or water here. 
+Tezzaran: 6 Riverweed ales it is! Oriaanna, you don't look so pleased about this.
 ~~~
 
- Tezzaran explains the concept of buying to the G'rung in a rather protracted process.
-Other bar staff had a loss in the family  
+Tezzaran explains the concept of buying to the G'rung in a rather protracted process. 
+you have moss, someone has sticks, you give your moss for sticks, yes
+if no have sticks, instead of trade sticks, you can trade with coin. *shows coins* If you trade with coin its called buying.  Not everywhere has sticks but most people carry these coins. Do you have some of these on you?
+
+Other bar staff had a loss in the family. Can they warm a beer - can put one on the stove, yeah sure that will be fine.   
 
 2 silver G'grung
 
