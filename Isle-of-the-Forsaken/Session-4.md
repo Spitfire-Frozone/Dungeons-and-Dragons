@@ -117,10 +117,11 @@ Nightingale: *raises hood and shrinks a bit*
 
 In the Rivers Bounty, the place is ratehr busy. There is a very noticeable white-skinned red-haired tiefling is running around (Barakas) behind the bar. The place looks too busy for just one person to be running things. The party makes their way over to the bar, and Nightingale goes off to the quietest place she can find, a small table with one seat. Bastion follows her and stands beside the table. 
 ~~~
-Barakas: Very busy
+Tezzaran: Hello!
+Barakas: Very busy. I need to serve him, him, them and then them, and then i'll get to you. 
 Tezzaran: That's fine. I'm happy to wait.
 ~~~
-Tezzaran offers to buy a round of drinks for everyone, and asks people what they want.  
+Tezzaran offers to buy a round of drinks for everyone, and asks people what they want. 
 ~~~
 Baka: I'll have a wine please, but can you make it warm? 
 Oriaanna: A wine for me as well please.
@@ -138,15 +139,49 @@ Nightingale: *completely lost*
 Passing bartender: I think you'll find it's either ale or water Where do you think we grow the grapes to make wine?
 Oriaanna: *walks back to the bar* They only do ale or water here. 
 Tezzaran: 6 Riverweed ales it is! Oriaanna, you don't look so pleased about this.
+Oriaanna: It's fine i'll have a beer. 
+Tezzaran: Is this fine with you Baka?
+Baka: As long as it's warm.
 ~~~
-
-Tezzaran explains the concept of buying to the G'rung in a rather protracted process. 
-you have moss, someone has sticks, you give your moss for sticks, yes
-if no have sticks, instead of trade sticks, you can trade with coin. *shows coins* If you trade with coin its called buying.  Not everywhere has sticks but most people carry these coins. Do you have some of these on you?
-
-Other bar staff had a loss in the family. Can they warm a beer - can put one on the stove, yeah sure that will be fine.   
-
-2 silver G'grung
+Baka and Oriaanna go over to where Nightingale and Bastion are and pull a nearby table over and draw chair for everyone. While G'rung joins Tezarran at the bar.
+~~~
+G'rung: Tez'ran what is buy?
+Tezzaran: Looks down at the Grung <a sigh of wonder> ...
+Tezzaran: Say you have some moss, and someone else has sticks. You want their moss, and they want your sticks. Yes?
+G'rung: Yes?
+Tezzaran: You would swap your moss for their sticks, yes
+G'rung: Me like swapping moss for sticks. 
+Tezzaran: Ok, if you don't have any moss, but want the sticks, you can still swap with something else yes? 
+G'rung: Yees?
+Tezzaran: Like for example ... these *shows a copper, silver and gold coin* If you swap with coin its called buying.
+G'rung: Oki
+Tezzaran: Not everywhere has sticks but most people carry these coins. Do you have some of these on you?
+G'rung: Yes. Can I buy?
+Tezzaran: Sure! *pulls up a stool and points to up*
+G'rung: *hops on the stool, and seeing the bar for the first time* oooh!
+Tezzaran: So we are ordering these drinks.
+~~~
+The bartender has now finished serving everyone and heads over to Tezzaran 
+~~~
+Barakas: Apologies for the wait. Other bar staff had a loss in the family, so I'm here all alone. What can I get you.  
+Tezzaran: 6 Riverweed ales please! Is it possilbe to warm one of those up? Or are they served at a particular temperature?
+Barakas: All our ales are served at room temperature. I guess I can put it on the stove? How hot do you want it. 
+Tezzaran: Yeah sure that will be fine, just under boiling is fine.  
+Barakas: That will be two silver please. 
+Tezzaran: *nods to G'rung*
+G'rung: Here *about to hand over two gold pieces*
+Tezzaran: Wait!
+Barakas: <sighs, shrugs shoulders> *starts pouring drinks* 
+Tezzaran: Do you have any of these *hold up a silver piece*
+G'rung: *searches his pockets* No
+Tezzaran: Ah, it just that this gold piece can be swapped for many of these silver pieces, and our friend here is asking for two of these *the pieces he is holding in his hands* not two of those *points to the gold piece the Grung is holding*
+Tezzaran: I'll get these then *hands over two silver pieces*
+~~~
+While returning from the bar, Tezzaran spies Astar making eyes at Entropy who is sat drinking at a different table.
+~~~ 
+Tezzaran: Honestly, just go talk to them.
+Astars: *shifts awkwardly and stares intently into his drink*
+~~~
 
 ~~~
 Bastion: *upends drink* That wasn't very stiff. 
@@ -154,9 +189,22 @@ Tezzaran: (ahh, note to self). I think the stiffness meant that the drink has al
 Bastion: Understood. Perhaps we should freeze it next time, as an experiment.
 ~~~
 
+Grung quickly finished his drink, Tezzaran exchanges one of the grungs gold pieces for ten of his silver pieces. One of those will be enough for you to buy another and the g'rung goes off to buy another drink. 
+
+~~~
+hops on bar
+hey get down from there, I assume that you want another drink?
+Grung hops ontp the floor yes
+hands a drink down to the grung, offers out hand,
+G'rung: hands a silver piece over
+: wait your change
+G'rung: *looks confused as he receives 6 copper pieces* oki
+~~~
+
 Tezarran teaches, cheering to the G'ung but Grung is too vigourous. and smashed his glass, and shards of glass embedd the frogs skin. Tezzaran puts on his gloves and helps take the shards out, but 
 
 A man comes over to clean the glass and say he will get it reblown. 
+
 
 The party has a discussion about what their long terms goals are. 
 ~~~
