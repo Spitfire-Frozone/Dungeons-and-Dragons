@@ -208,6 +208,8 @@ A man comes over to clean the glass and say he will get it reblown.
 
 The party has a discussion about what their long terms goals are. 
 ~~~
+Tezzaran: Damacos asked us to help with the hunt tomorrow, and I didn't want to commit us. to a acasue. What are all of our objectives/goals?
+
 G'rung: Wants to find out who took us and why? Find them, we talk them and kill them.
 Bastion: I require a large library. for a pupose larger than this
 Oriaanna: Was interested in visitng this part of the world. She works for troubled individuals in her city, currently on an ambassadorial role. 
@@ -220,9 +222,13 @@ Nightingale: *stabs the map in a particular spot*
 
 Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way I've never been inside.
 Oriaanna: Dimadorf has a library.
+
+Tezzaran: Is this something that you need to do now Nightingale?
+Tezzaran: So we should stay and help
 ~~~
-The party gets food from the bar. 
-Nightingale peels off and goes fishing in the river. 
+The party gets food from the bar. Nightingale peels off and goes fishing in the river. 
+
+After food, the party settles down in rooms for the night. Baka asks for a cellar to sleep in and is put in the area where the beer is made, and G'rung is put up in the communal bathtub, which is filled with water. Given the amount of alcohol G'rung has drunk, the party are mildly worried, but when questioned, G'rung seems to be acting no differently from usual, so they head off to bed. 
 
 ## Day 7 (Tuesday April 19th) - Weather: Foggy with Calm Wind
 
