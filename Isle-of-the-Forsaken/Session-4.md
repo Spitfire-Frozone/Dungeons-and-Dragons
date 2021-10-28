@@ -218,7 +218,7 @@ Tezzaran: Interested in adventure, but that question about why were specifically
 Nightingale: *stabs the map in a particular spot* 
 
 
-Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way
+Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way I've never been inside.
 Oriaanna: Dimadorf has a library.
 ~~~
 The party gets food from the bar. 
