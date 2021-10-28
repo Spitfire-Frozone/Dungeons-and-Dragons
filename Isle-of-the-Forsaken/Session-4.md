@@ -12,7 +12,7 @@ Mormo: If that is the other party, can we walk into town with them?
 Hearing this the G'rung hails the other party.
 ~~~
 G'rung: Hellooo.
-Other party: heloooo?
+Other party: helloooo?
 Tezzaran: Hey, we have Entropy with us, don't worry we're friendly. 
 Entropy: Hey it's ok. They are with me. 
 ~~~
@@ -43,6 +43,8 @@ Tezzaran: Apologies. We saw some members of the party before we left for the for
 Seere: What?
 Baka: Something removed his arm.
 ~~~
+
+### Arrival in the Village
 
 Upon arriving in the village, the party heads to the church. Damacos is sitting on a pew with Jaasmal (his partner).  Chandri and Lukas are still around. Ceidl (Robert's Wife) goes over to Cersei by Robert's body and busts into tears. Oriaanna goes around to Cersei and Ceidl to comfort them. Nightingale slips outside to chill in the graveyard. Entropy and G'rung take the body to the back room (there was a child in there, and they scarpered when the G'rung entered), and Entropy goes to the corner. G'rung holds their head down near the body. Baka offers their medical skills to help Damacos and Mormo. Tezzaran makes a splint for Mormo's leg. Bastion is standing guard by the entrance.
 
@@ -97,12 +99,39 @@ Baka: That is where I come from.
 G'rung: You no look like flame.
 ~~~
 
-Baka asks what gods are followed in this place. He is told that there are three major deities worshipped in the town. Meleki of the forest who is worshipped by the foragers and the carpenters; Sylvanas, the god of wild nature whose symbol is an oak leaf \[It was his will that this mound thing accosted us\]; and Domona, the goddess of rivers and healing whose symbol is of a river meandering in the forest. Baka and G'rung go over the alter and share a blessing.
+Baka asks what gods are followed in this place. He is told that there are three major deities worshipped in the town. Meleki of the forest who is worshipped by the foragers and the carpenters; Sylvanas, the god of wild nature whose symbol is an oak leaf \[It was his will that this mound thing accosted us\]; and Domona, the goddess of rivers and healing whose symbol is of a river meandering in the forest. Baka and G'rung go over the alter and share a blessing. These latter two deities are worshipped by everyone in the town. 
 
-Tezzaran directs the party to the Rivers Bounty and picks up Nightingale outside who was drawing a sketch of the town. Tezzaran gives it a perusal and offers some words of encouragement about the piece as he levels the work against the horizon. Nightingale is a bit hesitant about going to the pub, and raises her hood.
+Baka takes the G'rung over to the altar and offers a blessing to the local deities and Koseth. Baka uses simple language to get G'rung to understand, and G'rung nods silently along. 
 
 
-In the Rivers Bounty, a white-skinned red-haired tieflings is running around (Barakas). Tezzaran explains the concept of buying to the G'rung in a rather protracted process.
+Upon seeing more and more people leave the church, and that things are startgin to wind down, Tezzaran directs the party to go the Rivers Bounty and picks up Nightingale who is outside who was drawing a sketch of the town. Tezzaran gives it a perusal and offers some words of encouragement about the piece as he holds up the work against the horizon.
+
+~~~
+Tezzaran: We're going to the Rivers Bounty
+Nightingale: <General hubbub of noises you'd find in a crowded place> *tilts head to the side questioningly*
+Tezzaran: Yes, but I don't know whether the place is going to be busy.
+Nightingale: *raises hood and shrinks a bit*
+~~~
+
+### The Rivers Bounty
+
+In the Rivers Bounty, the place is ratehr busy. There is a very noticeable white-skinned red-haired tiefling is running around (Barakas) behind the bar. The place looks too busy for just one person to be running things. The party makes their way over to the bar, and Nightingale goes off to the quietest place she can find, a small table with one seat. Bastion follows her and stands beside the table. 
+~~~
+Barakas: Very busy
+Tezzaran: That's fine. I'm happy to wait.
+~~~
+Tezzaran offers to buy a round of drinks for everyone, and asks people what they want.  
+~~~
+Baka
+
+Tezaran: What about Nightingale and Bastion?
+Oriaanna
+Nightingale: seeeing everyone else has one *nods head*
+Passing bartender: I think you'll find it's either ale or water Where do you think we grow the grapes to make wine?
+
+~~~
+
+ Tezzaran explains the concept of buying to the G'rung in a rather protracted process.
 Other bar staff had a loss in the family  
 
 2 silver G'grung
@@ -121,8 +150,8 @@ The party has a discussion about what their long terms goals are.
 ~~~
 G'rung: Wants to find out who took us and why? Find them, we talk them and kill them.
 Bastion: I require a large library. for a pupose larger than this
-Oriaana: Was interested in visitng this part of the world. She works for troubled individuals in her city, currently on an ambassadorial role. 
-Baka: Here to protect my friend Oriaana, who is here on a work trip. 
+Oriaanna: Was interested in visitng this part of the world. She works for troubled individuals in her city, currently on an ambassadorial role. 
+Baka: Here to protect my friend Oriaanna, who is here on a work trip. 
 
 Tezzaran: Interested in adventure, but that question about why were specifically were chosen irks me. Gets out the map. In the short terms I would like to decipher this and orient myself. 
 
@@ -130,7 +159,7 @@ Nightingale: *stabs the map in a particular spot*
 
 
 Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way
-Oriaana: Dimadorf has a library.
+Oriaanna: Dimadorf has a library.
 ~~~
 The party gets food from the bar. 
 Nightingale peels off and goes fishing in the river. 
