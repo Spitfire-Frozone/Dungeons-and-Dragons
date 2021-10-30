@@ -221,19 +221,27 @@ Oriaanna: Well I was interested in visiting this part of the world for work reas
 Tezzaran: What kind of work do you do?
 Oriaanna: I work for troubled individuals in my city. I sort of work fostering relations between parts of the city, and other cities. 
 Tezzaran: So like an ambassador?
-Oriaanna: Yes, that's a very good way of putting it. I'm currently on an ambassadorial role. 
+Oriaanna: Yes, that's a very good way of putting it. I'm currently on an ambassadorial role.
+Tezzaran: And you Baka, I know you knew Oriaanna from before so are your goals similar? 
 Baka: Well I here to protect my friend Oriaanna, who is here on a work trip. 
-Tezzaran: As for myself. I'm interested in adventure, but I'm with G'rung. That question about why were specifically were chosen irks me. I need answers. *Gets out the map* I guess in the short term I would like to decipher this and orient myself. 
-
-Tezzaran: *starts to turn to Nightingale*
-Nightingale: * suddenly stabs the map in a particular spot* 
-
-
-Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way I've never been inside.
-Oriaanna: Dimadorf has a library.
-
-Tezzaran: Is this something that you need to do now Nightingale?
-Tezzaran: So we should stay and help
+Tezzaran: Ok. As for myself. I'm interested in adventure, and in no hurry to return but I'm with G'rung. That question about why were specifically were chosen irks me. I need answers. *Gets out the map* I guess in the short term I would like to decipher this and orient myself. 
+Party: *starts to turn attention to Nightingale*
+Nightingale: *suddenly stabs the map in a particular spot* 
+Tezzaran: I assume you have business there.
+Nightingale: < Not talking again? Let's see if you are more chatty after a few more days without food >
+Tezzaran: That is disgusting. 
+Oriaanna: That is terrible. I'm so sorry.
+Tezzaran: So Baka and Oriaanna want to stay, but I guess the thing potentially stopping us is Bastion's library search, and Nightingale's quest. There's a library in Malacham ... but it's not open acess. Lets put it this way I've never been inside.
+Oriaanna: I know Dimadorf has a library, and it's large. Anyone can use it. Happy to help you out Bastion.
+Bastion: It is not immediately pressing. 
+Tezzaran: Is this *pointing to the dagger* something that you need to do now Nightingale?
+Nightingale: *shakes head*
+Oriaanna: *Talking to the table generally* I will be happy to help you all in these quests
+Party: <General acclaims of affirmation and secondary offers in a similar vein>
+Tezzaran: But then, in response to Damacos' request. I assume we are happy to stay and help?
+Party: <General acclaims of affirmation>
+Tezzaran: That settles that, I'll inform Damacos in the morning. 
+Nightingale: *prises the dagger from the map*
 ~~~
 The party gets food from the bar. Nightingale peels off and goes fishing in the river. 
 
@@ -241,8 +249,5 @@ After food, the party settles down in rooms for the night. Baka asks for a cella
 
 ## Day 7 (Tuesday April 19th) - Weather: Foggy with Calm Wind
 
-Damacos joins the party for breakfast. Two items of your choice (or on commission) for the whole party from the crafters in town. Carpenters, Forge, Blacksmith, Bower, Potter+Glassbower, Tanner. 
-Tezarran informs Damacos that we will indeed be joining their hunting party today. 
-
-Meeting at the church shortly. 
+Damacos joins the party for breakfast. The town is poor and unable to offer monetary payment, but he says that the party can choose from two items of your choice (or on commission) for the whole party from the crafters in town. \[Carpenters, Forge, Blacksmith, Bower, Potter+Glassbower, Tanner\]. Tezarran also informs Damacos that we will indeed be joining their hunting party today. The hunting party is meeting at the church shortly afterwards. 
 
