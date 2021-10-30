@@ -61,33 +61,29 @@ Ceidl: Thank you for your kind words.
 
 G'rung leaves the room with Entropy, and Cersei and Ceidl follow them out the door and partially close the door behind them.
 
-Tezzaran goes over asks to Damacos and Chandri to ask where our party can stay in the night. We are directed to The Rivers Bounty by Damacos, but as we start giving directions, Chandri interrupts and says that was where they met our party.
-
-Damacos then starts to ask to Tezzaran asks about the events of the day. 
-
-
-Robert (is he dead.)
-
-Do you know what it was. Was Robert dead when you found him. Hard to spot. We were 9 of us. 
-
-Damacos: Thank you for healing Mormo.
-
+Tezzaran goes over asks to Damacos and Chandri to ask where our party can stay in the night, since it's been a long day for us. We are directed to The Rivers Bounty by Damacos, but as he starts giving directions, Chandri interrupts and says that was where they met our party. Damacos then starts to ask to Tezzaran asks about the events of the day. He asks for more details about the creature. 
 ~~~
+Damacos: Do you know what it was.
+Tezzaran: Some sort of vegiriatove mound thing. I have never seen one of those before. We suppose it arrive or was animated by the lighning storm that befell this town a while back. 
 Damacos: Is the creature dead?
-Tezzaran: The creature to ash. In my experience, creatures do not come back from.
+Tezzaran: Well, I'n not an expert, but after we killed it, the creature dissolved to ash. In my experience, creatures do not come back from that process.
+Damacos: My experience is similar. Was Robert dead when you found him. 
+Tezzaran: By the time he got there he had already been partially assimilated into the creature, but when we managed to pull him out he was dead. Not sure if he was alive while in the creature but I assume the assimilation process was fatal.
+Damacos: How easy was it to defeat?
+Tezzaran: While still the creature was hard to spot, and liked to play dead. We had very little trouble, but there were 9 of us. Mormo probably knows more about this. 
+Damacos: I have already spoken to Mormo, thank you for healing Mormo. It would have been a shame if my daughters partner died. 
 ~~~
-
 Damacos asks Tezzaran if they would accompany us on a hunt tomorrow. Jasmaal comes in and admonishes Damacos for this.
 ~~~
 Tezzaran: How pressing is the need for a second hunt. 
 Bastion: That was not the main objective of the party when we arrived. 
-Tezzaran: I think we will have to discuss this as a party this evening, preferably over a stiff drink. 
+Tezzaran: Agreed. I think we will have to discuss this as a party this evening, preferably over a stiff drink. 
 Bastion: I would like to see this stiff drink.
 Damacos: We have a riverweed ale
-Tezzaran: I cannot commit us to cause
+Tezzaran: I shall look forward to trying it, but I cannot commit us to cause without a discussion first .
 Damacos: I understand
 ~~~
-Damacos lives next to the carpenters Jasmaal's Joinery (The other one is run by Nailed It run by Raandaal and Jasmaal). He says that he will have an emergency meeting of the town elders to see if they can reward us for killing the monster. In either case, he will swing by the the tomorrow morning with their decision and to hear the party's decision on whether to accompany tomorrows hunt. 
+Damacos tell us he lives next to the carpenters Jasmaal's Joinery ( We should shop there as the other one in town is Nailed run by Raandaal and Jasmaal). He says that he will have an emergency meeting of the town elders to see if they can reward us for killing the monster. In either case, he will swing by the the tomorrow morning with their decision and to hear the party's decision on whether to accompany tomorrows hunt. 
 
 ~~~
 G'rung: Baka, what is this? *points all around him*
@@ -99,47 +95,47 @@ Baka: That is where I come from.
 G'rung: You no look like flame.
 ~~~
 
-Baka asks what gods are followed in this place. He is told that there are three major deities worshipped in the town. Meleki of the forest who is worshipped by the foragers and the carpenters; Sylvanas, the god of wild nature whose symbol is an oak leaf \[It was his will that this mound thing accosted us\]; and Domona, the goddess of rivers and healing whose symbol is of a river meandering in the forest. Baka and G'rung go over the alter and share a blessing. These latter two deities are worshipped by everyone in the town. 
+Baka asks Vezmoba what gods are followed in this place. He is told that there are three major deities worshipped in the town. Meleki of the forest who is worshipped by the foragers and the carpenters; Sylvanas, the god of wild nature whose symbol is an oak leaf \[It was his will that this mound thing accosted us\]; and Domona, the goddess of rivers and healing whose symbol is of a river meandering in the forest. Baka and G'rung go over the alter and share a blessing. These latter two deities are worshipped by everyone in the town. 
 
 Baka takes the G'rung over to the altar and offers a blessing to the local deities and Koseth. Baka uses simple language to get G'rung to understand, and G'rung nods silently along. 
 
 
-Upon seeing more and more people leave the church, and that things are startgin to wind down, Tezzaran directs the party to go the Rivers Bounty and picks up Nightingale who is outside who was drawing a sketch of the town. Tezzaran gives it a perusal and offers some words of encouragement about the piece as he holds up the work against the horizon.
+Upon seeing more and more people leave the church, and that things are startgin to wind down, Tezzaran directs the party to go the Rivers Bounty and picks up Nightingale who found the church too crowded for her taste. She was outside drawing a sketch of the town. Tezzaran gives it a perusal and offers some words of encouragement about the piece as he holds up the work against the horizon.
 
 ~~~
-Tezzaran: We're going to the Rivers Bounty
+Tezzaran: We're going to the Rivers Bounty.
 Nightingale: <General hubbub of noises you'd find in a crowded place> *tilts head to the side questioningly*
 Tezzaran: Yes, but I don't know whether the place is going to be busy.
-Nightingale: *raises hood and shrinks a bit*
+Nightingale: *raises hood and shrinks a bit* 
 ~~~
 
 ### The Rivers Bounty
 
-In the Rivers Bounty, the place is ratehr busy. There is a very noticeable white-skinned red-haired tiefling is running around (Barakas) behind the bar. The place looks too busy for just one person to be running things. The party makes their way over to the bar, and Nightingale goes off to the quietest place she can find, a small table with one seat. Bastion follows her and stands beside the table. 
+In the Rivers Bounty, the place is rather busy. There is a very noticeable white-skinned red-haired tiefling running around (Barakas) behind the bar. The place looks too busy for just one person to be running things. The party makes their way over to the bar, and Nightingale immediately goes off to the quietest place she can find, a small table with one seat. Bastion follows her and stands beside the table. 
 ~~~
 Tezzaran: Hello!
-Barakas: Very busy. I need to serve him, him, them and then them, and then i'll get to you. 
+Barakas: Very busy. I need to serve him, him, them and then them, and then I'll get to you. 
 Tezzaran: That's fine. I'm happy to wait.
 ~~~
 Tezzaran offers to buy a round of drinks for everyone, and asks people what they want. 
 ~~~
 Baka: I'll have a wine please, but can you make it warm? 
 Oriaanna: A wine for me as well please.
-Tezaran: I think i'll try that ale that Damacos recommended. 
+Tezaran: I think I'll try that ale that Damacos recommended. 
 Tezaran: What about Nightingale and Bastion?
-Oriaanna: *Goes over to the where Nightingale and Bastion are* Would you like a drink. 
+Oriaanna: *Goes over to the where Nightingale and Bastion are* Would you like a drink?
 Bastion: I would like the stiff drink please.
-Nightingale: seeeing everyone else in the place has at least one galss in front of them *nods head*
+Nightingale: seeeing everyone else in the place has at least one glass in front of them *nods head*
 Oriaanna: What would you like, ale?
 Nightingale: *shrugs indifferently*
 Oriaanna: Wine?
 Nightingale: *shrugs indifferently*
 Oriaanna: Liquor?
 Nightingale: *completely lost*
-Passing bartender: I think you'll find it's either ale or water Where do you think we grow the grapes to make wine?
+Passing bartender: I think you'll find it's either ale or water. Where do you think we grow the grapes to make wine?
 Oriaanna: *walks back to the bar* They only do ale or water here. 
 Tezzaran: 6 Riverweed ales it is! Oriaanna, you don't look so pleased about this.
-Oriaanna: It's fine i'll have a beer. 
+Oriaanna: It's fine I'll have a ale. 
 Tezzaran: Is this fine with you Baka?
 Baka: As long as it's warm.
 ~~~
@@ -157,67 +153,80 @@ Tezzaran: Like for example ... these *shows a copper, silver and gold coin* If y
 G'rung: Oki
 Tezzaran: Not everywhere has sticks but most people carry these coins. Do you have some of these on you?
 G'rung: Yes. Can I buy?
-Tezzaran: Sure! *pulls up a stool and points to up*
+Tezzaran: Sure! *pulls up a stool and points to it*
 G'rung: *hops on the stool, and seeing the bar for the first time* oooh!
-Tezzaran: So we are ordering these drinks.
+Tezzaran: So we are ordering these drinks *points to the barrels*.
 ~~~
-The bartender has now finished serving everyone and heads over to Tezzaran 
+The bartender has now finished serving everyone and heads over to Tezzaran. 
 ~~~
-Barakas: Apologies for the wait. Other bar staff had a loss in the family, so I'm here all alone. What can I get you.  
+Barakas: Apologies for the wait. Other bar staff had a loss in the family, so I'm here all alone. What can I get you?  
 Tezzaran: 6 Riverweed ales please! Is it possilbe to warm one of those up? Or are they served at a particular temperature?
-Barakas: All our ales are served at room temperature. I guess I can put it on the stove? How hot do you want it. 
-Tezzaran: Yeah sure that will be fine, just under boiling is fine.  
+Barakas: All our ales are served at room temperature. I guess I can put it on the stove? How hot do you want it?
+Tezzaran: The stove is fine, just under boiling is probably ok.  
 Barakas: That will be two silver please. 
 Tezzaran: *nods to G'rung*
 G'rung: Here *about to hand over two gold pieces*
 Tezzaran: Wait!
-Barakas: <sighs, shrugs shoulders> *starts pouring drinks* 
+Barakas: <sighs> *shrugs shoulders, starts pouring drinks* 
 Tezzaran: Do you have any of these *hold up a silver piece*
 G'rung: *searches his pockets* No
-Tezzaran: Ah, it just that this gold piece can be swapped for many of these silver pieces, and our friend here is asking for two of these *the pieces he is holding in his hands* not two of those *points to the gold piece the Grung is holding*
-Tezzaran: I'll get these then *hands over two silver pieces*
+Tezzaran: Ah, it just that this gold piece can be swapped for many of these silver pieces, and our friend here is asking for two of these *points to the silver pieces* not two of those *points to the gold piece the Grung is holding*
+Tezzaran: I'll get these then *hands over two silver pieces to Barakas*.
 ~~~
 While returning from the bar, Tezzaran spies Astar making eyes at Entropy who is sat drinking at a different table.
 ~~~ 
 Tezzaran: Honestly, just go talk to them.
-Astars: *shifts awkwardly and stares intently into his drink*
+Astar: *shifts awkwardly and stares intently into his drink*
 ~~~
 
+Tezzaran and G'rung reach the table and hand everyone their drink
 ~~~
 Bastion: *upends drink* That wasn't very stiff. 
 Tezzaran: (ahh, note to self). I think the stiffness meant that the drink has alcohol in it, as opposed to the property of the liquid itself. 
 Bastion: Understood. Perhaps we should freeze it next time, as an experiment.
 ~~~
 
-Grung quickly finished his drink, Tezzaran exchanges one of the grungs gold pieces for ten of his silver pieces. One of those will be enough for you to buy another and the g'rung goes off to buy another drink. 
-
+The ale is relatively inconsistent and some of the party detect a fishy aftertaste. Oriaanna grimaces at the taste. G'rung quickly finishes his drink, and want to buy more. Before G'rung hops off, Tezzaran exchanges one of G'rung gold pieces for ten of his silver pieces. 
 ~~~
-hops on bar
-hey get down from there, I assume that you want another drink?
-Grung hops ontp the floor yes
-hands a drink down to the grung, offers out hand,
-G'rung: hands a silver piece over
-: wait your change
+Tezzaran: One of those will be enough for you to buy another. 
+G'rung: *goes off to buy another drink and hops on the bar*
+Barakas: Hey, hey HEY! Get down from there, 
+G'rung: *hops onto the floor* 
+Barakas: I assume that you want another drink?
+G'rung: *sheepishly* yes
+~~~
+Barakas pours a drink from the barrel, and hands it down to the grung. He offers out his hand. The G'rung hands a silver piece over.
+~~~
+Barakas: hey, wait! Your change.
 G'rung: *looks confused as he receives 6 copper pieces* oki
 ~~~
-
-Tezarran teaches, cheering to the G'ung but Grung is too vigourous. and smashed his glass, and shards of glass embedd the frogs skin. Tezzaran puts on his gloves and helps take the shards out, but 
-
-A man comes over to clean the glass and say he will get it reblown. 
+As G'rung returns to the table Tezarran teaches cheers-ing to the G'rung but Grung is too vigourous in his gesture, and smashed his glass into Tezzaran's causing Tezzaran's glass to crack, but the G'rungs to shatter, and shards of glass embedd the frogs skin. Tezzaran puts on his gloves and helps take the shards out, but some of the shards scratch the frogs skin as he is taking them out. 
+~~~
+G'rung: OOW!
+Tezzaran: Sorry, stop moving.
+~~~
+A short man comes over to the table to clean the glass. He says that this happens reasonably often when people get drunk, and say he will get it reblown at the glassbower. 
 
 
 The party has a discussion about what their long terms goals are. 
 ~~~
-Tezzaran: Damacos asked us to help with the hunt tomorrow, and I didn't want to commit us. to a acasue. What are all of our objectives/goals?
+Tezzaran: Damacos asked us to help with the hunt tomorrow, and I didn't want to commit us to a cause. What are all of our objectives/goals?
+G'rung: I want find out who took us and why? Find them, we kill them.
+Oriaanna: Surely we want to understand more about these people. We know they worked for other people.
+G'rung: Fine. We find them, we talk them, we kill them.
+Bastion: I require information. Preferably from a large library. 
+Tezzaran: Is it for a purpose larger than this?
+Bastion: Yes.
+Oriaanna: Well I was interested in visiting this part of the world for work reasons?. 
+Tezzaran: What kind of work do you do?
+Oriaanna: I work for troubled individuals in my city. I sort of work fostering relations between parts of the city, and other cities. 
+Tezzaran: So like an ambassador?
+Oriaanna: Yes, that's a very good way of putting it. I'm currently on an ambassadorial role. 
+Baka: Well I here to protect my friend Oriaanna, who is here on a work trip. 
+Tezzaran: As for myself. I'm interested in adventure, but I'm with G'rung. That question about why were specifically were chosen irks me. I need answers. *Gets out the map* I guess in the short term I would like to decipher this and orient myself. 
 
-G'rung: Wants to find out who took us and why? Find them, we talk them and kill them.
-Bastion: I require a large library. for a pupose larger than this
-Oriaanna: Was interested in visitng this part of the world. She works for troubled individuals in her city, currently on an ambassadorial role. 
-Baka: Here to protect my friend Oriaanna, who is here on a work trip. 
-
-Tezzaran: Interested in adventure, but that question about why were specifically were chosen irks me. Gets out the map. In the short terms I would like to decipher this and orient myself. 
-
-Nightingale: *stabs the map in a particular spot* 
+Tezzaran: *starts to turn to Nightingale*
+Nightingale: * suddenly stabs the map in a particular spot* 
 
 
 Tezzaran: there's a library in Malacham ... but it's not open acess. Lets put it this way I've never been inside.
