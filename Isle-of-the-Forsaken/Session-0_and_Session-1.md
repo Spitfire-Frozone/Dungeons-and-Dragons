@@ -4,13 +4,13 @@
 
 Tezzaran sets out from Malacham to meet up with his friend Grung, upon reaching the usual meeting place he is greeted by some new friends: Bastion the Warforged and Nightingale the Kenku. Bastion would like to accompany Tezzaran back to the city to find the descendants of the family he used to serve. As they rest for the night the four of them are ambushed.
 
-*vision fades*
+*fade to black*
 
 ## Past Vision
 
 They awake in a vision of the past inhabiting different bodies: Paelias, Vani (me), Sora, Vola-shumo, Orla, Baern. They are opposite a table from a Vistra Hardheart who says that they need to buy time for the mages to prepare banishment spells to banish the dragons. 
 
-Now that they think about it, they know their new compansions, and they have always known them. they have some influence about how this dream goes. they ready ourselved for battle against Tiamat. Their horses have been prepared and they ride for battle. 
+Now that they think about it, they know their new companions, and they have always known them. They have some influence about how this dream goes, some agency. They ready ourselves for battle against Tiamat. Their horses have been prepared and they ride for battle. 
 
 *vision fades*
 They ride out through the city and Vistra Hardheart greets us by the gate, 
@@ -19,7 +19,7 @@ Vistra: If you manage to stop the dragon and save our civilisation, we will owe 
 ~~~
 *vision fades*
 
-Vast armies are facing dragons in open fields. There are far too many dragons for the party to possibly defeat. The battle hinges on buying enough time for the wizards preparing to banish all the dragons. The party rides out into open fields in an attempt to halt the advance of the dragons. Thunder rocks their bodies as they see the largest dragon they have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. Tiamat has entered the fray. It is accompanied by three smaller dragons; a red one a white one and a green one.  
+Vast armies are facing dragons in open fields. There are far too many dragons for the party to possibly defeat. The battle hinges on buying enough time for the wizards preparing to banish all the dragons. The party rides out into open fields in an attempt to halt the advance of the dragons. Thunder rocks their bodies as they see the largest dragon they have ever seen, towering over even the ancient dragons. It is a 5 headed dragon of Black, Blue, Green, Red, White. Tiamat has entered the fray. It is accompanied by three smaller dragons; a red one, a white one, and a green one.  
 
 ~~~
 Paelias: If we survive this, the first rounds on me!
