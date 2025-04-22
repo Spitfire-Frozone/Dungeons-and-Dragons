@@ -4,7 +4,7 @@ Joining Ron Livewell this evening
 Pierre Clouseau (he's French) - ex-cop PI
 Eleanor Harding - Professional Archeologist 
 Madame Marinka - Fortune Teller (can actually predict the future sometimes)
-Chester - Lumberjack, Carpenter
+Chester Forrest - Lumberjack, Carpenter
 
 Eleanor found a new dinosaur on the dig that we did after the last encounter. The Doyouthinkhesaurus. She assembled the bones into the order she thought was right and brought it back to the Worthlap Museum where it is a instant success. The museum is now flush with cash. Prof McTavish is overjoyed with this. He has invited you and the team to come visit, he has a special job for us by way of reward.  
 
@@ -137,17 +137,23 @@ In the dining room that evening We see some of the nobility. And Marie Curie is 
 
 
 ## The Voyage from New York to Southampton
-Chester strikes up a chat with chats to Charlie and comes up with a set for an car that falls apart. 
+Chester strikes up a chat with chats to Charlie Chaplain, and interests the fellow in the matter of prop making and design. They riff and joke and eventually they come up with a set for an car that falls apart, and Chester helps design the car. Charlie thanks him (maybe even Chester will get accredited when this motion picture is made)! 
 
+Ron has always been inspired by the shinyness of the big screen, and seeing Chester have such a charming talk with the man approaches him later in the journey, but with Kirk's harsh voice in his ear, he can't help but slip into old habits...
 ~~~
-Ron 
+Ron: I'm a fan of your work. I especially loved A Woman of Paris! 
+Charlie: Thanks!
+Ron: You're a superstar, you do your own stunts, live the high life and live the dream - but you have a family yes
+Charlie: Yes
+Ron: Do you have a nest egg or back up plan if something were to happen.
+Charlie: Kinda
+Ron: For their peace of mind I got a life insurance policy for you
 ~~~
-Ron manages to sell Charlie Chaplain insurance while on the crossing is Charlie Chaplain is insured against all damages from filming. Premiums are high, he's paying good money. Movie stars at the time are enrolled MGM quite.   
+Ron manages to sell Charlie Chaplain insurance while on the crossing. Charlie Chaplain is insured against all damages from filming. Premiums are high - he's paying good money. But this comes at an exceptional risk. Movie stars like Charlie Chaplain are not free agens, but employed for several films by a company. Charlie is enrolled in MGM, so if something happens and he does have to cash out, then it will be expensive.   
 
-Eleanor is conversing with Marie Curie who is reading a paper with her in it. They talk about the bones and the discovery, they Radio carbon date all the bones. all the bones come from 6 differnet time periods - yikes.
+Eleanor is conversing with Marie Curie who she finds reading a paper with her discovery in it. They talk about the bones and the discovery - Marie remarks why the head is so big. Elearnor responds that it's because it had a big brain. Marie then asks if she has some of the bones on her, as she has a new technique for identifying the ages of things. They go into the boiler room and together they use radioisotopic carbon dating on all the bones. Apparently all the bones come from 6 differnet time periods - yikes. Eleanor is flustered, but Marie will keep it quiet. This may have unforseen ramifications.
 
-Madame Marinka approaches Arthur Conan Doyle and they talk she agrees to perform a ritual for him at midnight. 
-Pierre tells of the ACD about a cursed mansion and tells him of the story and they write that book together essentailly. When midnight falls, he goes to the upper deck and MM performs a ritual to contact the dead lost at the sea, she also drugs the tea that hes using to keep him warm. 
+Madame Marinka and Pierre approach Arthur Conan Doyle and they talk. He is very taken that Pierre is similar to Holmes, and turns his attention to Madame Marinka when she reveals that she is a phychic. Pierre vouches for her talents and ACD asks if she can perform some sort of ritual. She agrees to perform a ritual for him on the deck at midnight. She leaves and Pierre and ACD talk more about sherlock Holmes, clearly trying to gauge inspiration for his next story ACD probes Pierre for any interesting stories in his travels. Pierre tells of the ACD about a cursed mansion (the previous adventure) and they essentailly write his next book together, again are we expecting to see Pierre get some accrediation here when the next book comes out! When midnight falls, he goes to the upper deck where Madame Morinka performs a ritual to contact the dead lost at the sea, she also drugs the tea that hes using to keep him warm to enhance his viewing experience (she's very up front about this), and they trip balls and have a gay old time. 
 
 Later in the voyage while checking the are, A steamy handprint on the window looking like it was coming from the inside. Under the back seat I find a garter, *tut tut*. Will keep this to investigate further.  
 
