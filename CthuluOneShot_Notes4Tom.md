@@ -33,7 +33,7 @@ When it comes to Vienna. There are Two hotels: Hotel Kummer (very fancy), Hotel 
 This takes us to Lunch (Vinnie's opened a branch here in Arkham!). We go clothes shopping and settle on some flash items at a rate of $50pp and $10 for the Monkey.
 
 ## Day 2 (Spring 1921)  
-After a day spend prepping the technicals of the journey, we have 5 days of free time to prepare for Vienna and the Auction. Ron will want to brush up on some skills so he doesn't make a fool of himself in high society, and see if he can get the right paperwork for the car, since we're planning to use it to drive from Hamburg to Vienna and back. Marinka and Eleanor will research the occult items. Pierre will take the time to learn some beginner German. Chester will take the time fashion a Swordcane to go with his suit, and purchases a blade to go inside this cane.
+After a day spend prepping the technicals of the journey, we have 5 days of free time to prepare for Vienna and the Auction. Ron will want to brush up on some skills so he doesn't make a fool of himself in high society, and see if he can get the right paperwork for the car, since we're planning to use it to drive from Hamburg to Vienna and back. Marinka and Eleanor will research the occult items at the Miscatonic library. Pierre will take the time to learn some beginner German. Chester will take the time fashion a Swordcane to go with his suit, and purchases a blade to go inside this cane.
 
 Madane Morinka wants to get some insights into what items to investigate so sets up a ritual and dangles her stone necklace to see if it's attracted to any of the items. She is drawn to 
 - Lots 1: (strongly) The Blood Ankh,
@@ -46,7 +46,7 @@ Madane Morinka wants to get some insights into what items to investigate so sets
 
 Seeing as it was on the list of items pointed out by the professor (and Madame Morinka was drawn to it) Eleanor investigates The Hand of The Hand of Glory.
 
-Hands of Glory
+### Hands of Glory
 -----
 They are made specifically from the hands of hanged murderers (the hand that did the deed is preferred). They are reputed to be have certain propoerties if the right rituals were performed. Some properties include but are not limited to: 
   - shedding light only the user can see,
@@ -64,27 +64,40 @@ On the nobility themselves - He is told that nobled in Europe usually speak flue
 ##### Austria and the Auction House
 They lost the war, and it was very bad for the economy. There is hyperinflation in the country, and nobody uses kroner. The nobles use pound sterling, and the auction house will use that as well. A lot of the old houses have lost a lot of money as a result of this depression, and since they don't have active income to make ends meet or liquidity to try and prop up their enterprises - a lot of them are selling off things to make ends meet. The Auctionhouse is one such place where they sell items collected, and it has a strong reputation for discression. The sellers of items are kept a secret. The auctioners are incorruptable, they pride themselves inreputation for fairness, and they serve their clients well. Carrying a deadly weapon in Austria is only permissible with a permit, and these are only open to citizens. The open carrying of weapons is forbidden (with an exception made for officers swords), and bringing weapons into the country is expressely forbidden as Visitors are forbidden from carrying weapons. In Germany and Austria this is very strongly enforced. Jailtime will be dished out if any infraction on this rule is found. If you get a weapon in a reputable auctionhouse, however, they will give you the necessary papers to get it back to the US.  
 
+
+## Days 3-5 inclusive (Spring 1921) 
+Madame Marika the starts an investigation into The Blood Ankh (it will take her three days she's not very good at finding the things she needs here). Eleanor investigates the sword, the Brass head, and the Prodogies material.
+
+### Blood Ankh
 -----
+The Blood Ankh is not only made of copper and silver, but also other things in it that are unknown to science. It is very old. There are markings on the front that are specifically not egyptian heiroglyphs, the are called heriatic symbols - the language of Mu. Philosophus Magnus reportedly used it to summon daemons, and he was burned at the stake in 1371. The next recorded user of this item was a Spanish woman, Lady Maria Spendoza, around 1581. Who murdered children and bathed the ankh in their blood. Upon apprehension she was improsioned and she committed suicide in prison (she was found with her throat torn out in her cell). 
 
-## Day 3 (Spring 1921) 
-Madame Marika the starts an investigation into The Blood Ankh (it will take her three days she's not very good at finding the things she needs here). 
+### The Sword
+----
+On the pommel she find the word Azoth embossed. The sword was owned by Paracelsus who was a German philosopher and alchemist from the 1350 in Germany. He summoned a daemon and trapped it in the hilt of the sword to do his bidding. Azoth was not the name of the creature, but thought to be a vital alchemical symbol that make life possible and used to help trapped the daemon in the sword. 
 
-Blood Ankh
+### Riveted Brass Head
+----
+For the head, it was constructed by a Black Magician in imitaion of Roger Bacon. The German source describes the head as having the ability to answer questions of deep philosophy and physics and via a ceremony which is not documented in this source, but in another (a lucky find!) the ceremony includes burning blood and pouring it over the head of it to awaken what intelligence is in the head. You can then process to ask it questions. 
+
+### Prodigies in the New England Canaan
+---
+For the brochure, much of what's in it is fanciful, but there are a lot of matches of descriptions and evens which Eleanor knows to be true. Other scholars have corroberated some of the content in this pamphlet. She gets the feeling that if you read this book it would teach you about real interactions between humans and otherworldy beings. 
+
+
+## Day 6 (Spring 1921) 
+
+With one day left until the voyage, M Marika investigates the gold Ring, Eleanor investigates the Magus Book and Ron wants to get some papers for his car
+
+### Gold ring
+----
+On the ring is a depiction of the seal of Solomon. Hence Madame Marika has a book that talks about this item in detail: The Lesser Key of Solomon. It is not actually the seal itself. King Solomon used the seal to command and imprison daemons. Arabic magicians have used the ring with this insignia of Solomon to imprison daemons
+
+### The Magus
+----
+Lot 6 - The Magus is written by Francis Barret, it helped start the occult resurgence in the last century. Some say Francis was a savant, and some say he was a charlatan. In either case the book is a Mainstay of modern occultism. This is a first edition signed from 1801. The Miscatonic University has a later copy of this book. There are rumours that material was removed from later editions. They are able to find this book in the restricted session of this library and peruse through it, but as it's chained to the desk and heavily conrolled, they cannot take out this book.
+
 -----
-It is made of copper and silver but also other things in it that are unknown to science. It is very old. There are markings on the front that are specifically not egyptian heiroglyphs, the are called heriatic symbols - the language of Mu. Philosophus Magnus reportedly used it to summon daemons, and he was burned at the stake in 1371. Then used by in 1581 by a Spanish woman, Lady Maria Spendoza, who murdered children and bathed the ankh in their blood. She committed suicide in prison (found with her throat torn out in her cell). 
-
------
-
-Eleanor investigates the sword, the Brass head and the Prodogies. For the sword. On the pommel she find Azoth. Paracelsus was a German philosopher and alchemist from the 1350 in Germany. He summoned a daemon and trapped it in the hilt of the sword to do his bidding. Azoth was a vital alchemical symbols that make life possible and hused to help trapped the daemon in the sword. 
-
-For the head, it was constructed by a Black Magician in imitaion of Roger Bacon. The German sourcedescribes the head as having the ability to answer questions of deep philosophy and physics and deep via a ceremony. The ceremony is burning blood and pouring it over the head of it to awaken what intelligence is in the head which you can then question. 
-
-For the brochure, much of what's in it is fanciful, but there are a lot of matches of which you know to be true. Other scholars have corroberated some of the content in this pamphlet. If you read this book it would teach you about real interactions between humans and otherworldy beings. 
-
-M Marika then investigates the Ring. She has a book that is useful for this. This is a depiction of the seal of Solomon. King Solomon used it to command and imprison daemons. Arabic magicians have used it to imprison daemons
-
-Eleanor investigates book from lot 6: Magus. It helped start the occult resurgence in the last century, written by Francis Barret, some was a savant, and some was a charlatan. Mainstay of modern occultism. This is a first edition signed from 1801. The Miscatonic University has a later copy of this book. There are rumours that material was removed from later editions. They are able to take out this book, they can look at it but not take it out. 
-
 
 
 Ron wants to get some papers for his car
@@ -103,6 +116,7 @@ There are papers in the glove box (luckily) but they are made out to one August 
 We go back to Ian to change currency, they don't deal in Kroner, so we turn everything into pounds.
 
 *Will not bring his gun with him* Scared about being put in prison. Will have a gentlemans cane with him. 
+
 
 ## 5 days later (9am - Morning of Spring 1921)  
 We pick up Professor McTavish and drive to the New York Docks. A crane lifts a car onto the ship. We're in first class. We are shown to very nice places with space for a valet. We venture out to sea. In the dining room that evening
