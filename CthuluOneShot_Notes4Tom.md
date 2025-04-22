@@ -129,12 +129,15 @@ While Ron is doing this, the rest of the team go back to Ian to change currency,
 Ron makes a decision to *not bring his gun with him* . He is scared about being put in prison. Will have a gentlemans cane with him for his protection. 
 
 
-## Day 7 (9am - Morning of Spring 1921)  
-We pick up Professor McTavish and drive to the New York Docks. A crane lifts a car onto the ship. We're in first class. We are shown to very nice places with space for a valet. We venture out to sea. In the dining room that evening
+## Day 7 (Morning of Spring 1921)  
+We pick up Professor McTavish and drive to the New York Docks. A crane lifts a car onto the ship. As we're in first class. We are shown to very nice accomodation with space for a valet. We venture out to sea. 
 
-We see some of the nobility. And Marie Curie is in there. Pierre sees Arthur Conan Doyle, Ron recognises after a double take Charlie Chaplain, and we all recognise Prince Edward - Prince of Wales.
+## Day 7 (Evening of Spring 1921)  
+In the dining room that evening We see some of the nobility. And Marie Curie is in there. Pierre sees Arthur Conan Doyle, Ron recognises after a double take Charlie Chaplain, and we all recognise Prince Edward - Prince of Wales.
 
-Chester chats to CHarlie and comes up with a set for an car that falls apart. 
+
+## The Voyage from New York to Southampton
+Chester strikes up a chat with chats to Charlie and comes up with a set for an car that falls apart. 
 
 ~~~
 Ron 
@@ -148,8 +151,9 @@ Pierre tells of the ACD about a cursed mansion and tells him of the story and th
 
 Later in the voyage while checking the are, A steamy handprint on the window looking like it was coming from the inside. Under the back seat I find a garter, *tut tut*. Will keep this to investigate further.  
 
-At around 10 days the ship reaches Southhampton and these poeple stay off and we arrive in Hamburg. The car is craned out of the hold. 4 days until the start of the journey. Nobody really important got on the ship at Southhampton.
-
+## Day 17 (Afternoon of Spring 1921)  
+At around 9 days the ship reaches Southhampton. Nobody really important got on the ship at Southhampton. Out of the First Class passengers, only Marie Curie stays onboard.
+The next day we arrive in Hamburg. The car is craned out of the hold. The auction is set to take place in 4 days. 
 
 
 
