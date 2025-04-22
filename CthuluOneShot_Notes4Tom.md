@@ -13,22 +13,22 @@ The party goes to the museum. Professor McTavish says that the current Archeolog
 ~~~
 McTavish: Here's a leaflet! Go to Vienna and get some exhibits for this museum 
 ~~~
-He'll give us $4000 for expenses which can include hotels, we'll need a ship, passports. We'll need to get suits because we're hobnobbing with the rich. But we need to exhange some for local currency. Interested in lots 4, 12 and 15 - $3000 for this, they come from the Americas. The auction will be conducted in pounds. He'll give a commission for the reserve price for items we bring back. There's a sword here as well so we will need to investigate if we can bring these papers back.
+He'll give us $4000 for expenses which can include hotels, we'll need tickets for a ship and passports. We'll also need to get suits because we're hobnobbing with the rich. We will need to exhange some for local currency. Interested in lots 4, 12 and 15 - $3000 for this, they come from the Americas. The auction will be conducted in pounds. He'll give a commission for the reserve price for items we bring back. There's a sword here as well so we will need to investigate if we can purchase this and bring it back with the necessary papers.
 
-First stop getting passports. We go to the records office to get passports. We meet Ian! He's now working there. We fill in forms and get our photos taken. We pay $20 as fees for this. Ian has a cousin Miscatonic Library (the Library of the university - the big Gothic building with all the Gargoyles). 
+First stop getting passports. We then go to the records office to get our passports. We meet Ian (again)! He's now working there. We fill in forms and get our photos taken and pay $20 as fees for this. Ian has a cousin working at the Miscatonic Library (the Library of the university - the big Gothic building with all the Gargoyles). 
 
-Ian also manages the bureau de change, but we're not sure how much money of each currency we need. 
+Ian also manages the bureau de change, but we're not sure how much money of each currency we need yet. 
 ~~~
-Ron: You're working a lot of jobs, you must have a lovign family, you will need the comfortof a safety net should things go wrong, have you considered life insurance: *hands Ian a card*
+Ron: You're working a lot of jobs, you must have a loving family, you will need the comfort of a safety net should things go wrong, have you considered life insurance: *hands Ian a card*
 Ian: Very good, I'll file this away very carefully in my Rolerdex
 ~~~
 Ian also gives us the name of a travel agent, and name of a suit shop: Fancy Suits Ltd and we head there we close at 5am 
 
-Heading to the Travel agents. There is a ship that can get us there in time but it's leaving 5 days from now, and the overall journey could be arounf 10 days. The RMS Olympic from New York, via Southhampton to Hamburg.  Which is a few hours from here. $200 a person each way which includes food. Taking a car is an extra $200. 
+Heading to the Travel agents. There is a ship that can get us there in time but it's leaving 5 days from now, and the overall journey could be around 10 days. The RMS Olympic (the sister ship to you-know-who) is due to set sail from New York (which is a couple hours drive from here), via Southhampton to Hamburg. 
 
-First Class both ways would have been $6400, but Ron wheeler-dealers and bamboozles the salesman down to $3500. Standard Class would be $2500 for the same. After discussing the budget we decide to go First class there (to rub shoulders with the rich guys on the way to the auction) and Standard back $3000. The return trip from Hamburg is two weeks after the trip there. 
+Standard fare is $200 a person each way which includes food. Taking a car is an extra $200. With the 6 of us that $2600. First Class both ways would have been $6400, but Ron pulls out his sellers batter, wheeler-dealers and bamboozles the salesman down to a price of $3500 (There isn't really much demand for First Class tickets). After discussing the budget we decide to go First class there (to rub shoulders with the rich guys on the way to the auction) and Standard back which will set us back $3000. The return trip from Hamburg is two weeks after the trip there. 
 
-When it comes to Vienna. Two hotels: Hotel Kummer (very fancy), Hotel Bristol - They'll take pounds. Lodging Houses around the City we'll need Kroners. £5 high class, £2-3 medium and low (50p in Kroner) pppn. We should plan for a few nights stay and breakfast will be included. 
+When it comes to Vienna. There are Two hotels: Hotel Kummer (very fancy), Hotel Bristol (moderate) - They'll take pounds. For the Lodging Houses around the City which are the cheapest we'll need Kroners. £5 high class, £2-3 medium and low (50p in Kroner) pppn. We should plan for a few nights stay and breakfast will be included. 
 
 This takes us to Lunch (Vinnie's opened a branch here in Arkham!). We go clothes shopping and settle on some flash items at a rate of $50pp and $10 for the Monkey.
 
