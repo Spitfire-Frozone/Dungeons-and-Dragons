@@ -100,25 +100,36 @@ Lot 6 - The Magus is written by Francis Barret, it helped start the occult resur
 -----
 
 
-Ron wants to get some papers for his car
+Ron has been using this car for a couple of months and wants to get some papers for his car, he will have to talk to Kirk Prosper on the phone who he thinks will help him 
 ~~~
-Kirk: Sell some insurance!
-
-He purchased the Milk float that killed my father.
+Kirk: Why are you calling me, have you been selling any insurance?
+Ron: No not yet, but I have an opportunity coming up in Vienna
+Kirk: VIENNA??
+Ron: There will be rich people there, it's a perfect opportunity to sell insurance
+Kirk: Enough of your excuses - What do you want?!
+Ron: There's just one tiny thing, you know that fancy car I got - The Rolls Royce
+Kirk: I know the one. I've seen you drive around in it. I pay your salary, I know you didn't purchase it on my dime!
+Ron: I got it fair, I just need some papers to prove its mine when I'm driving overseas...
+Kirk: Then you need a Deed of Ownership
+Ron: Do you have one that I can look at, just to get some sort of idea
+Kirk: As you mentions it, I did pick up a milk float that has been in an accident for quite cheap
+Ron: *squeezes the table hes at very hard*
+Kirk: You can have a look at the documents for it, they are in the glove compartment
+Ron: *Visibly shaken at the idea of having to get inside a milk float*
+Kirk: I'm a busy man sell some insurance. Goodbye!
 ~~~
-After this converstion Ron is a little less sane. 
+Ron is still reeling from the realisation that Kirk has purchased the Milk float that killed his father. After this converstion Ron is a little less sane. 
 
-Calls and meet Kirk Propser  Deed of Ownership is what is needed. They are in a milk float and he has them. 
-Sell some life insurance. 
+Defeated, Ron turns to the glove compartment of his Rolls Royce in a desperate attempt to do something before having to raid the milk float that murdered his father. Luckily there are papers in the glove box that were stuck to the roof and out of sight. They look legitimate as they Rolls Royce branding on the papers. However they are made out to one August Wayland so he will need to fiddle with these a bit to make them legit.
 
-There are papers in the glove box (luckily) but they are made out to one August Wayland has Rolls Royce branding on in the papers. He hands them to Eleanor who fumbles it, but manages to change the name to Ron Livewell, Ron is very happy with this. He services the car. 
+After speaking to the rest of the gang, he hands the Deed of Ownership to Eleanor who says that she can change it so that it says his name on it. She thinks it's her best work, and seeing how excited she is thanks her very much for the documents. In reality she has fumbled it but nobody manages to spot the mistake (maybe it will come back to haunt us later?) The important thing is that she manages to change the name to Ron Livewell and Ron is very happy with this. In the final hours he services the car. 
 
-We go back to Ian to change currency, they don't deal in Kroner, so we turn everything into pounds.
+While Ron is doing this, the rest of the team go back to Ian to change currency, they don't deal in Kroner, so we turn everything into pounds, and plan to exchange it into Kroner if needed when we get to Vienna (Germany is using the Mark so no help there either).
 
-*Will not bring his gun with him* Scared about being put in prison. Will have a gentlemans cane with him. 
+Ron makes a decision to *not bring his gun with him* . He is scared about being put in prison. Will have a gentlemans cane with him for his protection. 
 
 
-## 5 days later (9am - Morning of Spring 1921)  
+## Day 7 (9am - Morning of Spring 1921)  
 We pick up Professor McTavish and drive to the New York Docks. A crane lifts a car onto the ship. We're in first class. We are shown to very nice places with space for a valet. We venture out to sea. In the dining room that evening
 
 We see some of the nobility. And Marie Curie is in there. Pierre sees Arthur Conan Doyle, Ron recognises after a double take Charlie Chaplain, and we all recognise Prince Edward - Prince of Wales.
