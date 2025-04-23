@@ -8,7 +8,7 @@ Joining Ron Livewell this evening
 - Chester Forrest - Lumberjack, Carpenter
 
 ## Between the Adventures
-Eleanor found a new dinosaur on the dig that we did after the last encounter. The Doyouthinkhesaurus (Editors Note: Dewphinkisaurus is how I would imagine this was actually called). She assembled the bones into the order she thought was right and brought it back to the Worthlap Museum where it is a instant success. The museum is now flush with cash. Prof McTavish is overjoyed with this. He has invited you and the team to come visit, he has a special job for us by way of reward.  
+Eleanor found a new dinosaur on the dig that we did after the last encounter. The Doyouthinkhesaurus (Editors Note: Dewphinkesaurus is how I would imagine this was actually called). She assembled the bones into the order she thought was right and brought it back to the Worthlap Museum where it is a instant success. The museum is now flush with cash. Prof McTavish is overjoyed with this. He has invited you and the team to come visit, he has a special job for us by way of reward.  
 
 ----------
 ----------
