@@ -137,8 +137,7 @@ Ron makes a decision to *not bring his gun with him* . He is scared about being 
 We pick up Professor McTavish and drive to the New York Docks. A crane lifts a car onto the ship. As we're in first class. We are shown to very nice accomodation with space for a valet. We venture out to sea. 
 
 ## Day 7 (Evening of Spring 1921)  
-In the dining room that evening We see some of the nobility. And Marie Curie is in there. Pierre sees Arthur Conan Doyle, Ron recognises after a double take Charlie Chaplain, and we all recognise Prince Edward - Prince of Wales.
-
+In the dining room that evening We see some of the nobility, and passengers of First Class. Noted figures that are around are Marie Curie (spotted by Eleanor). Pierre sees Arthur Conan Doyle, Ron recognises - after a double take, because he is not sporting his famous moustache - Charlie Chaplain, and we all recognise Edward - The Prince of Wales.
 
 ## The Voyage from New York to Southampton
 Chester strikes up a chat with chats to Charlie Chaplain, and interests the fellow in the matter of prop making and design. They riff and joke and eventually they come up with a set for an car that falls apart, and Chester helps design the car. Charlie thanks him (maybe even Chester will get accredited when this motion picture is made)! 
