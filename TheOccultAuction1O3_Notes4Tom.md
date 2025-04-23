@@ -1,13 +1,17 @@
-# Call of Cthulu - Session 1/3 - 17/04/25
+# Call of Cthulu - The Occult Auction - Session 1/3 - 17/04/25
 
+## Roll Call
 Joining Ron Livewell this evening 
-Pierre Clouseau (he's French) - ex-cop PI
-Eleanor Harding - Professional Archeologist 
-Madame Marinka - Fortune Teller (can actually predict the future sometimes)
-Chester Forrest - Lumberjack, Carpenter
+- Pierre Clouseau (he's French) - ex-cop, PI
+- Eleanor Harding - Professional Archeologist 
+- Madame Marinka - Fortune Teller (can actually predict the future sometimes)
+- Chester Forrest - Lumberjack, Carpenter
 
+## Between the Adventures
 Eleanor found a new dinosaur on the dig that we did after the last encounter. The Doyouthinkhesaurus. She assembled the bones into the order she thought was right and brought it back to the Worthlap Museum where it is a instant success. The museum is now flush with cash. Prof McTavish is overjoyed with this. He has invited you and the team to come visit, he has a special job for us by way of reward.  
 
+----------
+----------
 ## Day 1 (9am - Morning of Spring 1921)  
 The party goes to the museum. Professor McTavish says that the current Archeology and Paleantology wings of the Museum are very sucessful, but we shoudl do new things, and capture the interest of the time. Since we now have an increased budget to do new things, now is the perfect time to act. He says we can expand our scope into Anthropology, and since people nowadays have a strange attraction to the occult. He wants to start a new wing of the museum of the Anthrolopolgy and the Occult. The Prof wants us to acquire some new items for this wing of the exhibit, however the early colonials took all the best shit back to Europe. He has a lead we can follow.
 ~~~
