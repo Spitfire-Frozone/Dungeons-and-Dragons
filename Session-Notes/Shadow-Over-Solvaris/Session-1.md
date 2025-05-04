@@ -171,7 +171,7 @@ On this hill there is a well and 6 huge stones (double the height of the party) 
 - C 
 - O 
 - X 
-- D 
+- D - Code for the backwards C
 - 0 - identical to the first
 - The last stone has no visible markings on it
 
@@ -179,7 +179,7 @@ One of the symbols has the same symbol as the brooch (we'll call that the C one)
 
 The party decide to guess a couple of logical orderings to press the stones, and if none of them work they will sit and think about it. 
 
-Danae suggests the order CODOX - it doesn't work. Luthor then suggests the ordering COXOD - this also doesn't work. Looney then tries OCXDO. Upon pressing her hand against the final slate, all the other stones start to glow a different colour, light blue and then red. 
+Danae suggests presseing the stones in the order D-0-C-O-X (shorthand D0COX) - it doesn't work. Luthor then suggests the ordering C0XOD - this also doesn't work. Looney then tries OCXD0. Upon pressing her hand against the final slate, all the other stones start to glow a different colour, light blue and then red. 
 
 We hear a massive screeching as the earth starts to shake, stones are springing out of the earth and are coalescing in the form of an Emerald Golem. We enter combat
 
