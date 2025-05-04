@@ -114,9 +114,12 @@ We walk along and try to decipher all the stones we can, but this slows the part
 
 > **What's on the Stones Part 1**
 >
-> [1 x] YOU DON‘T BELONG HERE! TURN AROUND! 
+> [1 x] YOU DON‘T BELONG HERE! TURN AROUND!
+> 
 > [2] The other, a sister, quiet and vast.
+> 
 > [3] He came with a voice like flame and golden footsteps.
+> 
 > [4] Where he walked, the earth warmed, and morning rose in his gaze.His strength gave courage, his heart brought light.
  
 
@@ -134,18 +137,31 @@ We use the Conquest's magic to decipher the inscriptions on the rest of the ston
 > **What's on the Stones Part 2**
 >
 > [4] She came with flowing silence and silver thoughts.Where she moved, stillness bloomed, and dreams stirred in her shadow.
+> 
 > [5] Her presence brought peace, her mind planted wonder. Together, they wandered through time,
-> [6] Unknown 
+> 
+> [6] Unknown
+> 
 > [7] But softly, like a breath drawn in, they came to understand: The world needed more than their footsteps.
+> 
 > [8] It needed places that would remain. So the brother shaped a place where light never fades—
+> 
 > [9] a place of hope and beginnings, where hearts burn like fire and footsteps fall like sunlight.
+> 
 > [10] The sister formed a place veiled in mist and dream —
+> 
 > [11] a haven of thought and change, where questions drift like water and knowledge blooms in the dark.
+> 
 > [12] Though distance and time stood between them, their bond was never broken.
+> 
 > [13] Between their realms lies something unseen—
+> 
 > [14] a hush that brushes over fields,a whisper in the wind the soul remembers, a harmony that never ends.
+> 
 > [15] Some say, when light grows soft and silence deep,
+> 
 > [16] when morning meets night and neither fades, it is there— what they once were.
+> 
 > [17] Unknown
 
 ###  Guardian of the Secret Code
@@ -180,4 +196,5 @@ We hear a massive screeching as the earth starts to shake, stones are springing 
 Luthor walks over and would to take the Golems's core. The Golems core is a weighty shard of a glowing silver stone serving as the power source of the Golems magic. It is heavy, but if anyone can carry this thing around, it's Luthor. Conquest takes an emerald shard lying around, and Looney takes some emerald golem dust into one of her backpack pockets. 
 
 With the beast slain it's time for a good nights sleep.
+
 **DING DING DING**
