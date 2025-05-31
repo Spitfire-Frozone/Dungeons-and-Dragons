@@ -173,13 +173,13 @@ On this hill there is a well and 6 huge stones (double the height of the party) 
 - X 
 - D - Code for the backwards C
 - 0 - identical to the first
-- The last stone has no visible markings on it
+- '-' The last stone has no visible markings on it
 
 One of the symbols has the same symbol as the brooch (we'll call that the C one). Conquest reaches out and touches the stone with the same marks as the brooch, and the rune starts to glow and keeps glowing. We hit the other stones one by one, and upon their touch they light up and remain lit. Looney pokes the last blank stone with her walknig stick and nothing happens. Luthor presses his palm to the blank stone and the glow from all the stones vanish. Luthor then posits that the order in which the stones are touched matters and if you get it right and then hit the last one if the code is correct something will happen.
 
 The party decide to guess a couple of logical orderings to press the stones, and if none of them work they will sit and think about it. 
 
-Danae suggests presseing the stones in the order D-0-C-O-X (shorthand D0COX) - it doesn't work. Luthor then suggests the ordering C0XOD - this also doesn't work. Looney then tries OCXD0. Upon pressing her hand against the final slate, all the other stones start to glow a different colour, light blue and then red. 
+Danae suggests presseing the stones in the order D,0,C,O,X- (shorthand D0COX-) and it doesn't work. Luthor then suggests the ordering C0XOD- and this also doesn't work. Looney then tries OCXD0-. Upon pressing her hand against the final slate, all the other stones start to glow a different colour, light blue and then red. 
 
 We hear a massive screeching as the earth starts to shake, stones are springing out of the earth and are coalescing in the form of an Emerald Golem. We enter combat
 
